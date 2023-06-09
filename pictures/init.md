@@ -79,3 +79,23 @@ Jay spoke of this
 ## Erica Mancini
 
 Sunny's bar musician
+
+## baldhead (from the bibl)
+
+He went up from there to Bethel; and while he was going up on the way, some small boys came out of the city and jeered at him, saying, “Go away, baldhead! Go away, baldhead!” When he turned around and saw them, he cursed them in the name of the Lord. Then two she‐bears came out of the woods and mauled forty‐two of the boys.
+
+## something to say to a fool from bible
+
+scoundrel and a villain goes around with crooked speech, 13winking the eyes, shuffling the feet, pointing the fingers, 14with perverted mind devising evil, continually sowing discord; 15on such a one calamity will descend suddenly; in a moment, damage beyond repair.
+
+## imagining someone speaking as so (from bible)
+
+For everything there is a season, and a time for every matter under heaven: a time to be born, and a time to die; a time to plant, and a time to pluck up what is planted; a time to kill, and a time to heal; a time to break down, and a time to build up; a time to weep, and a time to laugh; a time to mourn, and a time to dance; a time to throw away stones, and a time to gather stones together; a time to embrace, and a time to refrain from embracing; a time to seek, and a time to lose; a time to keep, and a time to throw away; a time to tear, and a time to sew; a time to keep silence, and a time to speak; a time to love, and a time to hate; a time for war, and a time for peace.
+
+## conciousness is in elementary matter or animals or what not
+
+If an animal could modify its behavior on the basis of its experience, it must be having an experience; it must be conscious. Thus, if one wished to study the evolution of consciousness, one simply studied the evolution of learning. 
+
+It states that the succession of subjective states that we feel in introspection has a continuity that stretches all the way back through phylogenetic evolution and beyond into a fundamental property of interacting matter.
+- bicameral mind
+

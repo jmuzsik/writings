@@ -16,6 +16,12 @@ That rare as true love is, true friendship is still rarer.
 
 ## PASSION
 
-## from a promise
+### from a promise
 
 Passions are spurs to action, and open the mind; but they sink into mere appetites, become a personal momentary gratification, when the object is gained, and the satisfied mind rests in enjoyment.
+
+## hidden love
+
+### the bible
+
+Wrath is cruel, anger is overwhelming, but who is able to stand before jealousy? Better is open rebuke than hidden love.

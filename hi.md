@@ -2,13 +2,13 @@
 
 ## REMEMBER some of this stuff:
 
-Problems seeking solutions. This is a very powerful way of thinking about the creative process. Implicit in this point of view is the idea that the answer already exists within the question, that the solution is embedded within the problem. If your job is to find that solution, the first step is to define the problem. 21. (Location 421)
+Problems seeking solutions. This is a very powerful way of thinking about the creative process. Implicit in this point of view is the idea that the answer already exists within the question, that the solution is embedded within the problem. If your job is to find that solution, the first step is to define the problem.
 
-A real writer (or artist or entrepreneur) has something to give. She has lived enough and suffered enough and thought deeply enough about her experience to be able to process it into something that is of value to others, even if only as entertainment. (Location 585)
+A real writer (or artist or entrepreneur) has something to give. She has lived enough and suffered enough and thought deeply enough about her experience to be able to process it into something that is of value to others, even if only as entertainment.
 
-Why do genres have conventions? Why do the gunfighters have to shoot it out at the end of a Western? Why do the lovers have to break up before they can make up in a Love Story? Why can’t we as storytellers “be creative” and simply violate these conventions? Because each of these (and every other convention in every other genre) is a station in that genre’s version of the hero’s journey. And the human psyche takes in and evaluates every narrative it sees or hears according to how closely that narrative comports to the beats and structure of the hero’s journey. Be groundbreaking, be experimental if you want. But remember, the human psyche is deeply conservative and rigid as a rock. (Location 744)
+Why do genres have conventions? Why do the gunfighters have to shoot it out at the end of a Western? Why do the lovers have to break up before they can make up in a Love Story? Why can’t we as storytellers “be creative” and simply violate these conventions? Because each of these (and every other convention in every other genre) is a station in that genre’s version of the hero’s journey. And the human psyche takes in and evaluates every narrative it sees or hears according to how closely that narrative comports to the beats and structure of the hero’s journey. Be groundbreaking, be experimental if you want. But remember, the human psyche is deeply conservative and rigid as a rock.
 
-The scarier the monster, the deeper the jeopardy, and the deeper the jeopardy, the more emotion will be produced in the hearts of the audience. (Location 814)
+The scarier the monster, the deeper the jeopardy, and the deeper the jeopardy, the more emotion will be produced in the hearts of the audience.
 
 1. Every work must be about something. It must have a theme. 2) Every work must have a concept, that is, a unique twist or slant or framing device. 3) Every work must start with an Inciting Incident. 4) Every work must be divided into three acts (or seven or eight or nine David Lean sequences). 5) Every character must represent something greater than himself/herself. 6) The protagonist embodies the theme. 7) The antagonist personifies the counter-theme. 8) The protagonist and antagonist clash in the climax around the issue of the theme. 9) The climax resolves the clash between the theme and the counter-theme. (Location 1226)
 

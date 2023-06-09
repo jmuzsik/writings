@@ -1,0 +1,5 @@
+# just like good faith
+
+## bibel
+
+Commit your way to the Lord;  trust in him, and he will act. 6He will make your vindication shine like the light,  and the justice of your cause like the noonday. 7Be still before the Lord, and wait patiently for him;  do not fret over those who prosper in their way,  over those who carry out evil devices. 8Refrain from anger, and forsake wrath.  Do not fret—it leads only to evil. 9For the wicked shall be cut off,  but those who wait for the Lord shall inherit the land.

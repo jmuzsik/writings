@@ -1,0 +1,6 @@
+{
+  "dependencies": {
+    "axios": "^1.4.0",
+    "showdown": "^2.1.0"
+  }
+}

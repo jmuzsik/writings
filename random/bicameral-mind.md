@@ -1,34 +1,3 @@
-# lots of words
-
-
-But since the theory of evolution, it has bared itself into a more scientific question. It has become the problem of the origin of mind, or, more specifically, the origin of consciousness in evolution. (Location 85)
-
-It states that the succession of subjective states that we feel in introspection has a continuity that stretches all the way back through phylogenetic evolution and beyond into a fundamental property of interacting matter. (Location 92)
-
-If an animal could modify its behavior on the basis of its experience, it must be having an experience; it must be conscious. Thus, if one wished to study the evolution of consciousness, one simply studied the evolution of learning. (Location 128)
-
-Many tough-minded experimentalists still agree with Herbert Spencer that such a downgrading of consciousness is the only view that is consistent with straight evolutionary theory. Animals are evolved; nervous systems and their mechanical reflexes increase in complexity; when some unspecified degree of nervous complexity is reached, consciousness appears, and so begins its futile course as a helpless spectator of cosmic events. What we do is completely controlled by the wiring diagram of the brain and its reflexes to external stimuli. Consciousness is not more than the heat given off by the wires, a mere epiphenomenon. Conscious feelings, as Hodgson put it, are mere colors laid on the surface of a mosaic which is held together by its stones, not by the colors.9 Or as Huxley insisted in a famous essay, “we are conscious automata.” (Location 184)
-
-Its main idea is a metaphor: Just as the property of wetness cannot be derived from the properties of hydrogen and oxygen alone, so consciousness emerged at some point in evolution in a way underivable from its constituent parts. (Location 205)
-
-But it has recorded everywhere and in large the enormous influence which the doctrine that consciousness does not exist has had on psychology in this century. And this is behaviorism. (Location 230)
-
-How often in our frustrations with trying to solve the mysteries of mind do we comfort our questions with anatomy, real or fancied, and think of a thought as a particular neuron or a mood as a particular neurotransmitter! (Location 260)
-
-All we have to do is to find those parts of the brain that are responsible for consciousness, then trace out their anatomical evolution, and we will solve the problem of the origin of consciousness. Moreover, if we study the behavior of present-day species corresponding to various stages in the development of these neurological structures, we will be able at last to reveal with experimental exactness just what consciousness basically is. (Location 267)
-
-Now this sounds like an excellent scientific program. Ever since Descartes chose the brain’s pineal body as the seat of consciousness and was roundly refuted by the physiologists of his day, there has been a fervent if often superficial search for where in the brain consciousness exists.15 And the search is still on. (Location 270)
-
-At the present, a plausible nominee for the neural substrate of consciousness is one of the most important neurological discoveries of our time. This is that tangle of tiny internuncial neurons called the reticular formation, which has long lain hidden and unsuspected in the brainstem. It extends from the top of the spinal cord through the brainstem on up into the thalamus and hypothalamus, attracting collaterals from sensory and motor nerves, almost like a system of wire-tabs on the communication lines that pass near it. But this is not all. It also has direct lines of command to half a dozen major areas of the cortex and probably all the nuclei of the brainstem, as well as sending fibers down the spinal cord where it influences the peripheral sensory and motor systems. Its function is to sensitize or “awaken” selected nervous circuits and desensitize others, such that those who pioneered in this work christened it “the waking brain.” (Location 273)
-
-It turns out to be one of the oldest parts of the nervous system. Indeed, a good case could be made that this is the very oldest part of the nervous system, around which the more orderly, more specific, and more highly (Location 288)
-
-Consciousness is a much smaller part of our mental life than we are conscious of, because we cannot be conscious of what we are not conscious of. How simple that is to say; how difficult to appreciate! It is like asking a flashlight in a dark room to search around for something that does not have any light shining upon it. The flashlight, since there is light in whatever direction it turns, would have to conclude that there is light everywhere. And so consciousness can seem to pervade all mentality when actually it does not. (Location 336)
-
-We are thus conscious less of the time than we think, because we cannot be conscious of when we are not conscious. (Location 353)
-
-Conscious retrospection is not the retrieval of images, but the retrieval of what you have been conscious of before,5 and the reworking of these elements into rational or plausible patterns. (Location 410)
-
 Every weary wayfarer after miles under the hot sun has seen a tree. So has every cat, squirrel, and chipmunk when chased by a dog. The bee has a concept of a flower, the eagle a concept of a sheer-faced rocky ledge, as a nesting thrush has a concept of a crotch of upper branch awninged with green leaves. Concepts are simply classes of behaviorally equivalent things. Root concepts are prior to experience. They are fundamental to the aptic structures that allow behavior to occur at all. (Location 439)
 
 If a distinct kind of music is played while you are eating a particularly delicious lunch, the next time you hear the music you will like its sounds slightly more and even have a little more saliva in your mouth. The music has become a signal for pleasure which mixes with your judgment. (Location 463)
@@ -108,7 +77,7 @@ My argument has stressed two things, the lack of mental language and the initiat
 The actual world of the Trojan War, then, was in historical fact much closer to the rigid theocracy which the theory predicts than to the free individuality of the poem. (Location 1138)
 
 we may regard the Iliad as standing at the great turning of the times, and a window back into those unsubjective times when every kingdom was in essence a theocracy and every man the slave of voices heard whenever novel situations occurred. (Location 1176)
----
+
 Updated: Jan 29, 2021
 
 The preposterous hypothesis we have come to in the previous chapter is that at one time human nature was split in two, an executive part called a god, and a follower part called a man. Neither part was conscious. (Location 1180)
@@ -116,7 +85,7 @@ The preposterous hypothesis we have come to in the previous chapter is that at o
 And now consider what it is like if neither of these methods avail, because there is no person there, no point of space from which the voice emanates, a voice that you cannot back off from, as close to you as everything you call you, when its presence eludes all boundaries, when no escape is possible—flee and it flees with you—a voice unhindered by walls or distances, undiminished by muffling one’s ears, nor drowned out with anything, not even one’s own screaming—how helpless the hearer! And if one belonged to a bicameral culture, where the voices were recognized as at the utmost top of the hierarchy, taught you as gods, kings, majesties that owned you, head, heart, and foot, the omniscient, omnipotent voices that could not be categorized as beneath you, how obedient to them the bicameral man! (Location 1384)
 
 Another way to say it is that volition came as a voice that was in the nature of a neurological command, in which the command and the action were not separated, in which to hear was to obey. (Location 1391)
----
+
 Updated: Feb 01, 2021
 
 Why then was not language? Language, that most urgent and significant of skills, the pre-emptory and exigent ground of social action, the last communicant thread on which life itself in the post-glacial millennia must often have depended! Why was not this without-which-nothing of human culture represented on both hemispheres? (Location 1423)
@@ -176,7 +145,7 @@ The next stage is the development of thing nouns, really a carry-over from the p
 Behavior more closely based on aptic structures (or, in an older terminology, more ‘instinctive’) needs no temporal priming. But learned activities with no consummatory closure do need to be maintained by something outside of themselves. This is what verbal hallucinations would supply. (Location 1866)
 
 It was indeed at this point in human history that I believe articulate speech, under the selective pressures of enduring tasks, began to become unilateral in the brain, to leave the other side free for these hallucinated voices that could maintain such behavior. (Location 1870)
----
+
 Updated: Feb 03, 2021
 
 But just as a noun for an animal makes that relationship a much more intense one, so a name for a person. And when the person dies, the name still goes on, and hence the relationship, almost as in life, and hence burial practices and mourning. (Location 1887)
@@ -188,11 +157,11 @@ I beg you to recall, as we try to picture the social life of Eynan, that these N
 The king’s tomb as the god’s house continues through the millennia as a feature of many civilizations, particularly in Egypt. But, more often, the king’s-tomb part of the designation withers away. This occurs as soon as a successor to a king continues to hear the hallucinated voice of his predecessor during his reign, and designates himself as the dead king’s priest or servant, a pattern that is followed throughout Mesopotamia. In place of the tomb is simply a temple. And in place of the corpse is a statue, enjoying even more service and reverence, since it does not decompose. (Location 1986)
 
 CIVILIZATION is the art of living in towns of such size that everyone does not know everyone else. Not a very inspiring definition, perhaps, but a true one. (Location 2013)
----
+
 Updated: Feb 06, 2021
 
 But is this a necessary relationship? Could not grief itself promote such practices, a kind of refusal to accept the death of a loved one or a revered leader, calling dead persons gods as a kind of endearment? (Location 2233)
----
+
 Updated: Feb 09, 2021
 
 But as we approach and continue through to the end of the third millennium B.C., the tempo and complexity of social organization demand a far greater number of decisions in a far greater number of contexts in any week or month. And hence, the enormous proliferation of deities which could be invoked in whatever situation a man might find himself. (Location 2662)
@@ -218,11 +187,11 @@ In the bicameral era, the bicameral mind was the social control, not fear or rep
 The input to the divine hallucinatory aspect of the bicameral mind was auditory. It used cortical areas more closely connected to the auditory parts of the brain. And once the word of god was silent, written on dumb clay tablets or incised into speechless stone, the god’s commands or the king’s directives could be turned to or avoided by one’s own efforts in a way that auditory hallucinations never could be. The word of a god had a controllable location rather than an ubiquitous power with immediate obedience. (Location 2827)
 
 But the immediate and precipitate cause of the breakdown of the bicameral mind, of the wedge of consciousness between god and man, between hallucinated voice and automaton action, was that in social chaos the gods could not tell you what to do. Or if they did, they led to death, or at the intimate least to an increase in the stress that physiologically occasioned the voice in the first place, until voices came in an unsolvable Babel of confusion. (Location 2833)
----
+
 Updated: Feb 11, 2021
 
 My suggestion is that narratization arose as a codification of reports of past events. Writing up to this time—and it is only a few centuries since its invention—had been primarily an inventory device, a way of recording the stores and exchanges of a god’s estates. Now it becomes a way of recording god-commanded events, whose recitation after the fact becomes the narratization of epics. (Location 2978)
----
+
 Updated: Feb 12, 2021
 
 Since omens are really a particular example of this when expressed in language, we can say that the origin of omens is simply in animal nature rather than in civilized culture per se. (Location 3220)
@@ -236,19 +205,19 @@ We are so used to the huge variety of games of chance, of throwing dice, roulett
 And when the gods no longer accomplished this function, perhaps because of the increasing complication of such decisions, sortilege came into history as a substitute for this right hemisphere function. (Location 3277)
 
 The earliest mention of throwing lots appears to be in legal tablets dating from the middle of the second millennium B.C., but it is only toward its end that the practice becomes widespread in important decisions: to assign shares of an estate among the sons (as at Susa), or shares of temple income to certain officials of the sanctuary, to establish a sequence among persons of equal status for various purposes. This was not simply for practical purposes, as it would be with us, but always to find out the commands of a god. (Location 3285)
----
+
 Updated: Feb 13, 2021
 
 The idea of sacrifice itself, of course, originated in the feeding of the hallucinogenic idols (Location 3310)
 
 It is thus not surprising that animals rather than oil, wax, smoke, etc., became the more important media of communication with the gods. (Location 3312)
----
+
 Updated: Feb 14, 2021
 
 history is impossible without the spatialization of time that is characteristic of consciousness. (Location 3436)
 
 comes from the absence or the inappropriateness of gods and their hallucinated directions. (Location 3560)
----
+
 Updated: Feb 16, 2021
 
 Momentary attention is clearly correlated with partial or complete inhibition of breathing. (Location 3607)
@@ -266,7 +235,7 @@ The more reasonable view, I think, is that the Odyssey followed the Iliad by at 
 Odysseus, at least in some parts of Greece, had become the center of a cult that enabled conquered peoples to survive. (Location 3735)
 
 The contrast with the Iliad is astonishing. Both in word and deed and character, the Odyssey describes a new and different world inhabited by new and different beings. The bicameral gods of the Iliad, in crossing over to the Odyssey, have become defensive and feeble. (Location 3745)
----
+
 Updated: Feb 17, 2021
 
 But more germane to the present topic is the famous “Know thyself,” which is often ascribed to him but may have come from one of his contemporaries. This again was something inconceivable to the Homeric heroes. How can one know oneself? By initiating by oneself memories of one’s actions and feelings and looking at them together with an analog ‘I’, conceptualizing them, sorting them out into characteristics, and narratizing so as to know what one is likely to do. One must ‘see’ ‘oneself’ as in an imaginary ‘space,’ indeed what we were calling autoscopic illusions back in an early chapter. (Location 3948)
@@ -277,14 +246,14 @@ So dualism, that central difficulty in this problem of consciousness, begins its
 
 At the beginning, we noted that archaeologists, by brushing the dust of the ages from around the broken shards of pottery from the period of the Dorian invasions, have been able to reveal continuities and changes from site to site, and so to prove that a complex series of migrations was occurring. In a sense, we have been doing the same thing with language throughout this chapter. We have taken broken-off bits of vocabulary, those that came to refer to some kind of mental function, and by their contexts from text to text, attempted to demonstrate that a huge complex series of changes in mentality was going on during these obscure periods that followed the Dorian invasions in Greece. (Location 4022)
 
-Let no one think these are just word changes. Word changes are concept changes and concept changes are behavioral changes. The entire history of religions and of politics and even of science stands shrill witness to that. Without words like soul, liberty, or truth, the pageant of this human condition would have been filled with different roles, different climaxes. And so with the words we have designated as preconscious hypostases, which by the generating process of metaphor through these few centuries unite into the operator of consciousness.   I (Location 4027)
+Let no one think these are just word changes. Word changes are concept changes and concept changes are behavioral changes. The entire history of religions and of politics and even of science stands shrill witness to that. Without words like soul, liberty, or truth, the pageant of this human condition would have been filled with different roles, different climaxes. And so with the words we have designated as preconscious hypostases, which by the generating process of metaphor through these few centuries unite into the operator of consciousness. I (Location 4027)
 
 Why were these books put together? The first thing to realize is that the very motive behind their composition around Deuteronomy at this time was the nostalgic anguish for the lost bicamerality of a subjectively conscious people. This is what religion is. And it was done just as the voice of Yahweh in particular was not being heard with any great clarity or frequency. Whatever their sources, the stories themselves, as they have been arranged, reflect human psychologies from the ninth century up to the fifth century B.C., the period during which there is progressively less and less bicamerality. The (Location 4101)
 
 further observation could be made upon the story of the Fall and how it is possible to look upon it as a myth of the breakdown of the bicameral mind. (Location 4122)
 
 It is here used to describe the source of the temptation. The ability to deceive, we remember, is one of the hallmarks of consciousness. The serpent promises that “you shall be like the elohim themselves, knowing good and evil” (Genesis 3:5), qualities that only subjective conscious man is capable of. And when these first humans had eaten of the tree of knowledge, suddenly “the eyes of them both were opened,” their analog eyes in their metaphored mind-space, “and they knew that they were naked” (Genesis 3:7), or had autoscopic visions and were narratizing, seeing themselves as others see them.6 And so is their sorrow “greatly multipled” (Genesis 3:16) and they are cast out from the garden where He-who-is could be seen and talked with like another man. (Location 4124)
----
+
 Updated: Feb 23, 2021
 
 And as visually the bicameral experience recedes into the thick darkness, where thunders and lightnings and driving clouds of dense blackness crowd in on the inaccessible heights of Sinai, we are approaching the greatest teaching of the entire Old Testament, that, as this last of the elohim loses his hallucinatory properties, and is no longer an inaccessible voice in the nervous system of a few semi-bicameral men, and becomes something written upon tablets, he becomes law, something unchanging, approachable by all, something relating to all men equally, king and shepherd, universal and transcendent. (Location 4157)
@@ -305,7 +274,7 @@ For in spite of all that rationalist materialist science has implied since the S
 
 A full discussion here would specify how the attempted reformation of Judaism by Jesus can be construed as a necessarily new religion for conscious men rather than bicameral men. Behavior now must be changed from within the new consciousness rather than from Mosaic laws carving behavior from without. Sin and penance are now within conscious desire and conscious contrition, rather than in the external behaviors of the decalogue and the penances of temple sacrifice and community punishment. The divine kingdom to be regained is psychological not physical. It is metaphorical not literal. It is ‘within’ not in extenso. (Location 4358)
 
-But even the history of Christianity does not and cannot remain true to its originator. The development of the Christian Church returns again and again to this same longing for bicameral absolutes, away from the difficult inner kingdoms of agape to an external hierarchy reaching through a cloud of miracle and infallibility to an archaic authorization in an extended heaven. In previous chapters I have often paused to point out various parallels between ancient bicameral practices and modern religious ones, and I shall not labor such comparisons here.   Also (Location 4363)
+But even the history of Christianity does not and cannot remain true to its originator. The development of the Christian Church returns again and again to this same longing for bicameral absolutes, away from the difficult inner kingdoms of agape to an external hierarchy reaching through a cloud of miracle and infallibility to an archaic authorization in an extended heaven. In previous chapters I have often paused to point out various parallels between ancient bicameral practices and modern religious ones, and I shall not labor such comparisons here. Also (Location 4363)
 
 Greek oracles were the central method of making important decisions for over a thousand years after the breakdown of the bicameral mind. This fact is usually obscured by the strident rationalism of modern historians. Oracles were subjectivity’s umbilical cord reaching back into the sustaining unsubjective past. (Location 4397)
 
@@ -345,7 +314,7 @@ Six-month-old babies can be given EEG’s while being held in the laps of their 
 
 It is thus no idle happenstance of history that the very name of music comes from the sacred goddesses called Muses. (Location 5066)
 
-For Plato at least, the matter was quite clear. Poetry was a divine madness. It was katokoche or possession by the Muses;   . . . all good poets, epic as well as lyric, composed their beautiful poems not by art, but because they are inspired and possessed . . . there is no invention in him until he has been inspired and is out of his senses and the mind is no longer in him.14   Poets then, around 400 B.C., were comparable in mentality to the oracles of the same period, and went through similar psychological transformation when they performed. (Location 5082)
+For Plato at least, the matter was quite clear. Poetry was a divine madness. It was katokoche or possession by the Muses; . . . all good poets, epic as well as lyric, composed their beautiful poems not by art, but because they are inspired and possessed . . . there is no invention in him until he has been inspired and is out of his senses and the mind is no longer in him.14 Poets then, around 400 B.C., were comparable in mentality to the oracles of the same period, and went through similar psychological transformation when they performed. (Location 5082)
 
 so, I suggest, poets slowly changed until the fury and possession by the Muses was also partial and erratic. And then the Muses hush and freeze into myths. Nymphs and shepherds, dance no more. Consciousness is a witch beneath whose charms pure inspiration gasps and dies into invention. The oral becomes written by the poet himself, and written, it should be added, by his right hand, worked by his left hemisphere. (Location 5138)
 
@@ -353,7 +322,7 @@ In summary, then, the theory of poetry I am trying to state in this scraggly col
 
 The continuance of poetry, its change from a divine given to a human craft is part of that nostalgia for the absolute. The search for the relationship with the lost otherness of divine directives would not allow it to lapse. And hence the frequency even today with which poems are apostrophes to often unbelieved-in entities, prayers to unknown imaginings. (Location 5153)
 
-And dear Shelley said it plain:   A man cannot say, “I will compose poetry.” The greatest poet even cannot say it; for the mind in creation is as a fading coal, which some invisible influence, like an inconstant wind, awakens to transitory brightness . . . and the conscious portions of our natures are unprophetic either of its approach or its departure.21 (Location 5168)
+And dear Shelley said it plain: A man cannot say, “I will compose poetry.” The greatest poet even cannot say it; for the mind in creation is as a fading coal, which some invisible influence, like an inconstant wind, awakens to transitory brightness . . . and the conscious portions of our natures are unprophetic either of its approach or its departure.21 (Location 5168)
 
 Poetry, once started in mankind, needs not the same means for its production. It began as the divine speech of the bicameral mind. And even today, through its infinite mimeses, great poetry to the listener, however it is made, still retains that quality of the wholly other, of a diction and a message, a consolation and an inspiration, that was once our relationship to gods. (Location 5178)
 
@@ -400,7 +369,7 @@ The answer here is partly in the limitations of our learned consciousness in thi
 Those who through what theologians call the “gift of faith” can center and surround their lives in religious belief do indeed have different collective cognitive imperatives. They can indeed change themselves through prayer and its expectancies much as in post-hypnotic suggestion. It is a fact that belief, political or religious, or simply belief in oneself through some earlier cognitive imperative, works in wondrous ways. (Location 5533)
 
 But for the rest of us, who must scuttle along on conscious models and skeptical ethics, we have to accept our lessened control. We are learned in self-doubt, scholars of our very failures, geniuses at excuse and tomorrowing our resolves. And so we become practiced in powerless resolution until hope gets undone and dies in the unattempted. (Location 5537)
----
+
 Updated: Feb 25, 2021
 
 For it has been quite apparent that the views presented here suggest a new conception for that most common and resistant of mental illnesses, schizophrenia. This suggestion is that, like the phenomena discussed in the preceding chapters, schizophrenia, at least in part, is a vestige of bicamerality, a partial relapse to the bicameral mind. The present chapter is a discussion of this possibility. (Location 5557)
@@ -424,7 +393,7 @@ This may be part of the explanation of the “segmental set” I have previously
 The conscious man is constantly using his introspection to find ‘himself’ and to know where he is, relevant to his purposes and situation. And without this source of security, deprived of narratization, living with hallucinations that are unacceptable and denied as unreal by those around him, the florid schizophrenic is in an opposite world to that of the god-owned laborers of Marduk or of the idols of Ur. (Location 5952)
 
 The modern schizophrenic is an individual in search of such a culture. But he retains usually some part of the subjective consciousness that struggles against this more primitive mental organization, that tries to establish some kind of control in the middle of a mental organization in which the hallucination ought to do the controlling. In effect, he is a mind bared to his environment, waiting on gods in a godless world. (Location 5955)
----
+
 Updated: Feb 25, 2021
 
 In this final chapter, I wish to turn to science itself and point out that it too, and even my entire essay, can be read as a response to the breakdown of the bicameral mind. For what is the nature of this blessing of certainty that science so devoutly demands in its very Jacob-like wrestling with nature? Why should we demand that the universe make itself clear to us? Why do we care? (Location 5965)
@@ -506,7 +475,7 @@ Nor have I mentioned the different modes of conscious narratization such as verb
 The bicameral mind. (Location 6227)
 
 Apart from this theory, why are there gods? Why religions? Why does all ancient literature seem to be about gods and usually heard from gods? (Location 6230)
----
+
 Updated: Feb 26, 2021
 
 The most significant such finding is that the right hemisphere is the hemisphere which processes information in a synthetic manner. It is now well known from even more studies that the right hemisphere is far superior to the left in fitting together block designs (Kohs Block Design Test), parts of faces, or musical chords,11 and such synthetic functions were indeed those of the admonitory gods in fitting together civilizations. (Location 6273)
