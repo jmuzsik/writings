@@ -1,0 +1,123 @@
+The spectacle is a social relation between people that is mediated by an accumulation of images that serve to alienate us from a genuinely lived life. The image is thus an historical mutation of the form of commodity fetishism. (Location 120)
+
+The ‘classical’ working class is more and more replaced by a proletarianised mass. Those in middle class occupations are reduced to selling their labour power just like the working class. Rounds of redundancies, longer unpaid working hours and the concomitant anxieties of employment in a ‘flexible’ and ‘competitive’ labour market tend to reduce all to the misery of wage slavery. (Location 143)
+
+Updated: Jan 13, 2021
+
+It is the very heart of this real society’s unreality. In all of its particular manifestations — news, propaganda, advertising, entertainment — the spectacle represents the dominant model of life. It is the omnipresent affirmaation of the choices that have already been made in the sphere of production and in the consumption implied by that production. (Location 372)
+
+The spectacle also represents the constant presence of this justification since it monopolizes the majority of the time spent outside the production process. (Location 377)
+
+Conversely, real life is materially invaded by the contemplation of the spectacle, and ends up absorbing it and aligning itself with it. (Location 387)
+
+For the spectacle is both the meaning and the agenda of our particular socio-economic formation. It is the historical moment in which we are caught. (Location 404)
+
+The first stage of the economy’s domination of social life brought about an evident degradation of being into having — human fulfillment was no longer equated with what one was, but with what one possessed. (Location 430)
+
+The present stage, in which social life has become completely dominated by the accumulated productions of the economy, is bringing about a general shift from having to appearing — all “having” must now derive its immediate prestige and its ultimate purpose from appearances. (Location 432)
+
+Philosophy — the power of separate thought and the thought of separate power — was never by itself able to supersede theology. The spectacle is the material reconstruction of the religious illusion. (Location 453)
+
+The spectacle is the ruling order’s nonstop discourse about itself, its never-ending monologue of self-praise, its self-portrait at the stage of totalitarian domination of all aspects of life. (Location 473)
+
+With the increasing accumulation of separate products and the increasing concentration of the productive process, communication and comprehension are monopolized by the managers of the system. The triumph of this separation-based economic system proletarianizes the whole world. (Location 504)
+
+But such inactivity is in no way liberated from productive activity. It remains dependent on it, in an uneasy and admiring submission to the requirements and consequences of the production system. It is itself one of the consequences of that system. There can be no freedom apart from activity, and within the spectacle activity is nullified — all real activity having been forcibly channeled into the global construction of the spectacle. Thus, what is referred to as a “liberation from work,” namely the modern increase in leisure time, is neither a liberation of work itself nor a liberation from the world shaped by this kind of work. None of the activity stolen by work can be regained by submitting to what that work has produced. (Location 511)
+
+The alienation of the spectator, which reinforces the contemplated objects that result from his own unconscious activity, works like this: The more he contemplates, the less he lives; the more he identifies with the dominant images of need, the less he understands his own life and his own desires. (Location 532)
+
+Though separated from what they produce, people nevertheless produce every detail of their world with ever-increasing power. They thus also find themselves increasingly separated from that world. The closer their life comes to being their own creation, the more they are excluded from that life. (Location 549)
+
+The spectacle is capital accumulated to the point that it becomes images. (Location 553)
+
+Updated: Jan 15, 2021
+
+Within natural economies, the emergence of a commodity sector represented a surplus survival. Commodity production, which implies the exchange of varied products between independent producers, tended for a long time to retain its small-scale craft aspects, relegated as it was to a marginal economic role where its quantitative reality was still hidden. But whenever it encountered the social conditions of large-scale commerce and capital accumulation, it took total control of the economy. The entire economy then became what the commodity had already shown itself to be in the course of this conquest: a process of quantitative development. This constant expansion of economic power in the form of commodities transformed human labor itself into a commodity, into wage labor, and ultimately produced a level of abundance sufficient to solve the initial problem of survival — but only in such a way that the same problem is continually being regenerated at a higher level. Economic growth has liberated societies from the natural pressures that forced them into an immediate struggle for survival; but they have not yet been liberated from their liberator. The (Location 598)
+
+Revolution’s manufactural division of labor and mass production for a global market, the commodity finally became fully visible as a power that was colonizing all social life. It was at that point that political economy established itself as the dominant science, and as the science of domination. (Location 617)
+
+Whereas during the primitive stage of capitalist accumulation “political economy considers the proletarian only as a worker,” who only needs to be allotted the indispensable minimum for maintaining his labor powkjer, and never considers him “in his leisure and humanity,” this ruling-class perspective is revised as soon as commodity abundance reaches a level that requires an additional collaboration from him. Once his workday is over, the worker is suddenly redeemed from the total contempt toward him that is so clearly implied by every aspect of the organization and surveillance of production, and finds himself seemingly treated like a grownup, with a great show of politeness, in his new role as a consumer. (Location 633)
+
+Automation, which is both the most advanced sector of modern industry and the epitome of its practice, obliges the commodity system to resolve the following contradiction: The technological developments that objectively tend to eliminate work must at the same time preserve labor as a commodity, because labor is the only creator of commodities. The only way to prevent automation (or any other less extreme method of increasing labor productivity) from reducing society’s total necessary labor time is to create new jobs. To this end the reserve army of the unemployed is enlisted into the tertiary or “service” sector, reinforcing the troops responsible for distributing and glorifying the latest commodities; and in this it is serving a real need, in the sense that increasingly extensive campaigns are necessary to convince people to buy increasingly unnecessary commodities. (Location 648)
+
+Whatever is conscious wears out. What is unconscious remains unalterable. But once it is freed, it too falls to ruin” (Freud). (Location 692)
+
+Just as the development of the most advanced economies involves clashes between different priorities, totalitarian state-bureaucratic forms of economic management and countries under colonialism or semicolonialism also exhibit highly divergent types of production and power. By invoking any number of different criteria, the spectacle can present these oppositions as totally distinct social systems. But in reality they are nothing but particular sectors whose fundamental essence lies in the global system that contains them, the single movement that has turned the whole planet into its field of operation: capitalism. (Location 733)
+
+The society that bears the spectacle does not dominate underdeveloped regions solely by its economic hegemony. It also dominates them as the society of the spectacle. (Location 739)
+
+The bureaucratic regimes in power in certain industrialized countries have their own particular type of spectacle, but it is an integral part of the total spectacle, serving as its pseudo-opposition and actual support. (Location 743)
+
+Stars — spectacular representations of living human beings — project this general banality into images of permitted roles. As specialists of apparent life, stars serve as superficial objects that people can identify with in order to compensate for the fragmented productive specializations that they actually live. The function of these celebrities is to act out various lifestyles or sociopolitical viewpoints in a full, totally free manner. (Location 762)
+
+Fallacious archaic oppositions are revived — regionalisms and racisms which serve to endow mundane rankings in the hierarchies of consumption with a magical ontological superiority — and pseudoplayful enthusiasms are aroused by an endless succession of ludicrous competitions, from sports to elections. (Location 786)
+
+The spectacle exists in a concentrated form and a diffuse form, depending on the requirements of the particular stage of poverty it denies and supports. In both cases it is nothing more than an image of happy harmony surrounded by desolation and horror, at the calm center of misery. (Location 796)
+
+Updated: Jan 17, 2021
+
+“Of all the instruments of production, the greatest productive power is the revolutionary class itself.” (Location 966)
+
+Marx’s theory is closely linked with scientific thought insofar as it seeks a rational understanding of the forces that really operate in society. (Location 968)
+
+The bourgeois era, which wants to give history a scientific foundation, overlooks the fact that the science available to it could itself arise only on the foundation of the historical development of the economy. (Location 975)
+
+Updated: Jan 18, 2021
+
+This fusion of all partial demands into a single all-encompassing demand has given anarchism the merit of representing the rejection of existing conditions in the name of the whole of life rather than from the standpoint of some particular critical specialization; but the fact that this fusion has been envisaged only in the absolute, in accordance with individual whim and in advance of any practical actualization, has doomed anarchism to an all too obvious incoherence. (Location 1128)
+
+The illusion more or less explicitly maintained by genuine anarchism is its constant belief that a revolution is just around the corner, and that the instantaneous accomplishment of this revolution will demonstrate the truth of anarchist ideology and of the form of practical organization that has developed in accordance with that ideology. (Location 1149)
+
+“gives no indication as to what practical attitude should be adopted. For it is one thing to recognize that something is inevitable, and quite another to put oneself in the service of that inevitability” (Location 1166)
+
+Updated: Jan 19, 2021
+
+It also demonstrated the independence of the economy: the economy has come to dominate society so completely that it has proved capable of recreating the class domination it needs for its own continued operation; that is, the bourgeoisie has created an independent power that is capable of maintaining itself even without a bourgeoisie. (Location 1271)
+
+The atomized bureaucrats can find their collective legitimacy only in the person of Stalin — the lord of the world who thus comes to see himself as the absolute person, for whom no superior spirit exists. “The lord of the world recognizes his own nature — omnipresent power — through the destructive violence he exerts against the contrastingly powerless selfhood of his subjects.” He is the power that defines the terrain of domination, and he is also “the power that ravages that terrain.” (Location 1315)
+
+project already envisioned by Napoleon of “monarchically controlling memory” has been realized in Stalinism’s constant rewriting of the past, which alters not only the interpretations of past events but even the events themselves. But the price paid for this liberation from all historical reality is the loss of the rational frame of reference that is indispensable to capitalism as a historical social system. The Lysenko fiasco is just one well-known example of how much the scientific application of ideology gone mad has cost the Russian economy. This contradiction — the fact that a totalitarian bureaucracy trying to administer an industrialized society is caught between its need for rationality and its repression of rationality — is also one of its main weaknesses in comparison with normal capitalist development. (Location 1323)
+
+Updated: Jan 20, 2021
+
+But when the proletariat discovers that its own externalized power contributes to the constant reinforcement of capitalist society, no longer only in the form of its alienated labor but also in the form of the trade unions, political parties, and state powers that it had created in the effort to liberate itself, it also discovers through concrete historical experience that it is the class that must totally oppose all rigidified externalizations and all specializations of power. It bears a revolution that cannot leave anything outside itself, a revolution embodying the permanent domination of the present over the past and a total critique of separation; and it must discover the appropriate forms of action to carry out this revolution. (Location 1438)
+
+The temporalization of humanity, brought about through the mediation of a society, amounts to a humanization of time. The unconscious movement of time becomes manifest and true within historical consciousness. (Location 1537)
+
+As Hegel notes, “the wandering of nomads is only nominal because it is limited to uniform spaces.” When a society settles in a particular location and gives space a content by developing distinctive areas within it, it finds itself confined within that locality. (Location 1553)
+
+The wealth that can only be concentrated in the hands of the rulers and spent in extravagant festivities amounts to a squandering of historical time at the surface of society. (Location 1565)
+
+In itself, cyclical time is a time without conflict. But conflict is already present even in this infancy of time, as history first struggles to become history in the practical activity of the masters. (Location 1574)
+
+With the emergence of political power — which seems to be associated with the last great technological revolutions (such as iron smelting) at the threshold of a period that would experience no further major upheavals until the rise of modern industry — kinship ties begin to dissolve. The succession of generations within a natural, purely cyclical time begins to be replaced by a linear succession of powers and events. This irreversible time is the time of those who rule, and the dynasty is its first unit of measurement. Writing is the rulers’ weapon. (Location 1587)
+
+The monotheistic religions were a compromise between myth and history, between the cyclical time that still governed the sphere of production and the irreversible time that was the theater of conflicts and regroupings among different peoples. (Location 1639)
+
+The victory of the bourgeoisie is the victory of a profoundly historical time, because it is the time corresponding to an economic production that continuously transforms society from top to bottom. So long as agrarian production remains the predominant form of labor, the cyclical time that remains at the base of society reinforces the joint forces of tradition, which tend to hold back any historical movement. But the irreversible time of the bourgeois economy eradicates those vestiges throughout the world. History, which until then had seemed to involve only the actions of individual members of the ruling class, and which had thus been recorded as a mere chronology of events, is now understood as a general movement — a relentless movement that crushes any individuals in its path. By discovering its basis in political economy, history becomes aware of what had previously been unconscious; but this basis remains unconscious because it cannot be brought to light. This blind prehistory, this new fate that no one controls, is the only thing that the commodity economy has democratized. (Location 1712)
+
+Updated: Jan 22, 2021
+
+As Hegel showed, time is the necessary alienation, the terrain where the subject realizes himself by losing himself, becomes other in order to become truly himself. In total contrast, the current form of alienation is imposed on the producers of an estranged present. In this spatial alienation, the society that radically separates the subject from the activity it steals from him is in reality separating him from his own time. This potentially surmountable social alienation is what has prevented and paralyzed the possibilities and risks of a living alienation within time. (Location 1868)
+
+“Whoever becomes the ruler of a city that is accustomed to freedom and does not destroy it can expect to be destroyed by it, for it can always find a pretext for rebellion in the name of its former freedom and age-old customs, which are never forgotten despite the passage of time or any benefits it has received. No matter what the ruler does or what precautions he takes, the inhabitants will never forget that freedom or those customs — unless they are separated or dispersed . . .” —Machiavelli, The Prince (Location 1897)
+
+Tourism — human circulation packaged for consumption, a by-product of the circulation of commodities — is the opportunity to go and see what has been banalized. The economic organization of travel to different places already guarantees their equivalence. The modernization that has eliminated the time involved in travel has simultaneously eliminated any real space from it. (Location 1917)
+
+Updated: Jan 28, 2021
+
+The sociologists who have begun to raise questions about the living conditions created by modern social developments (first of all in the United States) have gathered a great deal of empirical data, but they have failed to grasp the true nature of their object of study because they fail to recognize the critique that is inherent in that object. As a result, those among them who sincerely wish to reform these conditions can only appeal to ethical standards, common sense, moderation, and other measures that are equally inadequate for dealing with the problems in question. Because this method of criticism is unaware of the negativity at the heart of its world, it focuses on describing and deploring an excessive sort of negativity that seems to blight the surface of that world like some irrational parasitic infestation. This outraged good will, which even within its own moralizing framework ends up blaming only the external consequences of the system, can see itself as critical only by ignoring the essentially apologetic character of its assumptions and methods. (Location 2177)
+
+The very style of dialectical theory is a scandal and abomination to the prevailing standards of language and to the sensibilities molded by those standards, because while it makes concrete use of existing concepts it simultaneously recognizes their fluidity and their inevitable destruction. (Location 2248)
+
+This style, which includes a critique of itself, must express the domination of the present critique over its entire past. Dialectical theory’s mode of exposition reveals the negative spirit within it. “Truth is not like some finished product in which one can no longer find any trace of the tool that made it” (Hegel). (Location 2252)
+
+Ideas improve. The meaning of words plays a role in that improvement. Plagiarism is necessary. Progress depends on it. It sticks close to an author’s phrasing, exploits his expressions, deletes a false idea, replaces it with the right one. (Location 2270)
+
+“Self-consciousness exists in itself and for itself only insofar as it exists in and for another self-consciousness; that is, it exists only by being recognized and acknowledged.” —Hegel, The Phenomenology of Spirit (Location 2304)
+
+“The need for money is thus the real need created by the modern economic system, and the only need it creates” (Economic and Philosophical Manuscripts). Hegel’s characterization of money as “the self-moving life of what is dead” (Jenenser Realphilosophie) has now been extended by the spectacle to all social life. (Location 2334)
+
+Imprisoned in a flattened universe bounded by the screen of the spectacle that has enthralled him, the spectator knows no one but the fictitious speakers who subject him to a one-way monologue about their commodities and the politics of their commodities. (Location 2357)
+
+The self-emancipation of our time is an emancipation from the material bases of inverted truth. This “historic mission of establishing truth in the world” can be carried out neither by the isolated individual nor by atomized and manipulated masses, but only and always by the class that is able to dissolve all classes by reducing all power to the de-alienating form of realized democracy — to councils in which practical theory verifies itself and surveys its own actions. This is possible only when individuals are “directly linked to universal history” and dialogue arms itself to impose its own conditions. (Location 2378)

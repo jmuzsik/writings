@@ -1,0 +1,77 @@
+# what is this????
+
+There is no way to “fabricate” resonance, to instrumentally bring it about. Similarly, we cannot easily “engineer” falling asleep, or the falling of snow—although nowadays we actually can take sleeping pills, just as winter resorts can employ snow cannons. This is exactly what this book is about: modernity’s incessant desire to make the world engineerable, predictable, available, accessible, disposable (i.e. verfügbar) in all its aspects. (Location 159)
+
+The driving cultural force of that form of life we call “modern” is the idea, the hope and desire, that we can make the world controllable. Yet it is only in encountering the uncontrollable that we really experience the world. Only then do we feel touched, moved, alive. (Location 185)
+
+Contrary to the constant complaint that soccer these days is “only about the money,” what makes the game attractive is the fact that victories and defeats cannot be bought or engineered. They cannot be controlled. Soccer remains so exciting for many people —to the point that it constitutes the central focus of their libidinal desire all week long, until the next round of league play begins—precisely because it is inherently uncontrollable. (Location 192)
+
+My hypothesis is this: because we, as late modern human beings, aim to make the world controllable at every level—individual, cultural, institutional, and structural—we invariably encounter the world as a “point of aggressions” or as a series of points of aggression, in other words as a series of objects that we have to know, attain, conquer, master, or exploit. (Location 216)
+
+The first guiding thesis that I would like to develop in this essay is that, for late modern human beings, the world has simply become a point of aggression.3 Everything that appears to us must be known, mastered, conquered, made useful. (Location 249)
+
+My theory is that the normalization and naturalization of our aggressive relationship to the world is the result of a social formation, three centuries in the making, that is based on the structural principle of dynamic stabilization and on the cultural principle of relentlessly expanding humanity’s reach. (Location 272)
+
+A modern society, as I define it, is one that can stabilize itself only dynamically, in other words one that requires constant economic growth, technological acceleration, and cultural innovation in order to maintain its institutional status quo. (Location 286)
+
+a majority of parents in the “developed” world report that they are no longer motivated by the hope that their children will have it better than they do, but by the desire to do everything they possibly can so that they don’t have it worse. (Location 300)
+
+As I would like to demonstrate in this essay, the categorical imperative of late modernity—Always act in such a way that your share of the world is increased—has become the dominant principle behind our decision-making in all areas of life and across all ages, from toddlers to the elderly. (Location 315)
+
+Marx proceeds from the assumption that wage labor, arising from the private ownership of the means of production, is the root cause of alienation. (Location 491)
+
+Our primary concern is preventing strangers from getting too close to us. Keeping one’s distance has become a basic dispositional requirement, though one that carries with it the risk of making us feel isolated even in the midst of the metropolitan masses: (Location 516)
+
+My hypothesis is that the fundamental fear of modernity is fear of the world’s falling mute, of which burnout and depression are only a timely (and perhaps heightened) expression. (Location 575)
+
+a precondition of being a human being, that “eccentrically positioned” creature who not only can but is compelled to distance herself from herself and from her relationship to the world and, in a way, to observe herself from the outside. (Location 660)
+
+we must be open enough to be affected or changed, while at the same time we must also be closed off enough to respond effectively with our own voice. (Location 734)
+
+Individuals who do not trust their ability to both affect and be affected, who have either forgotten or never experienced the fact that they are capable of both touching others and eliciting from them an accommodating response, will restrict themselves to encountering the world of people and things only in an aggressive–manipulative mode. (Location 737)
+
+Modernity is oriented toward making as much “world” controllable as possible, in order to increase the likelihood of uncontrollable, yet longed-for and fulfilling resonant experiences. (Location 810)
+
+of my pet cat. I experience her purring and her trustfulness as events of genuine resonance precisely because she can also evade me, because sometimes she doesn’t purr, but scratches or even bites me—in short, precisely because I cannot completely control her. (Location 855)
+
+When people experience a book—the Bible, say, or Marx’s Capital—as a resonant other, this is only because they feel that they have not yet fully grasped it, because it continues to provoke, or at times even outrage them. (Location 875)
+
+Conversely, in my view, the phenomenon of procrastination, which especially haunts writers, can best be explained by the fact that we know that the question of whether or not we will successfully manage to write something, whether we will resonate with the text or object at hand, depends neither on our will nor on our effort. (Location 987)
+
+Perhaps the fact that we are so unaccustomed to adopting a different attitude toward accomplishing “tasks,” one that would be sensitive to resonance, is the reason why psychosocial counselors at universities are nowadays overrun with suffering procrastinators. (Location 992)
+
+If I do not expect to be capable of writing a book, or playing soccer, or “getting into” poetry, then I will not be able to resonate with these activities. (Location 1013)
+
+what makes soccer so attractive is precisely the fact that it is far more difficult to control a ball with one’s feet than with one’s hands. This increases the uncontrollability of the game in terms of both the actions of the individual players (e.g. shots or crosses) and the interactions, the “harmony” of the team.13 Yet acquiring and improving the skills needed to handle the ball not only does not reduce the likelihood of experiencing resonance, but in fact, just as in the case of the pianist discussed above, is apt to enhance the quality of such an experience. (Location 1028)
+
+The more surveillance cameras, warning devices, burglar alarms, and protective fencing are installed around a property, the less secure residents feel. (Location 1213)
+
+## Education is thus a process of continual transformation in which the subject develops into a person with his or her “own voice,” a voice that is itself also uncontrollable. (Location 1274)
+
+Updated: May 25, 2022
+
+Modernity’s relationship to illness is one of pure aggression—be gone with it!—and, when we are unable to beat it, we see ourselves as impotent failures. (Location 1441)
+
+Doctors and caretakers have to deal with documents, measurements, and display screens under constant time pressures; they are always trying to optimize their performance economically, technologically, medically, and temporally. Meanwhile patients expect the “optimal care” promised them; who their caretaker is doesn’t matter, so long as the services rendered are parametrically optimized in every respect. There is no longer any space, even at a conceptual level, for caretakers with an individual voice that cannot be made controllable. (Location 1471)
+
+The only way to obtain full control over one’s own death is to commit suicide. In this premeditated act, we in fact exert authoritative control over life itself, even if only ex negativo, by destroying it. (Location 1501)
+
+In job after job, people are increasingly occupied with writing, examining, and assessing ever longer reports, proposals, and other documents. The blight of having to make everything controllable has everywhere infected the uncontrollable productivity of social life. (Location 1688)
+
+Adorno, the compulsion to make the entire world controllable and to cut out that which cannot be controlled begins with thinking itself—not with the content of thought, but with our way of thinking, our intellectual attitude—and thus is embedded in our innermost perception of the world. (Location 1743)
+
+But, in going after all of these different meanings and trying to “nail them down,” we too are already in the realm of fixating, mortifying identity thinking, the very destroyer of things. (Location 1771)
+
+## this means that we do not experience the full phenomenological complexity of things, but only those aspects of them that we have made controllable conceptually, economically, and technologically. (Location 1785)
+
+Updated: May 27, 2022
+
+But, while we can give them objectives and they are potentially even capable of seeking out their own, they cannot desire. A world of artificial intelligence would thus lack the crucial motivating energy that drives a dynamic social life. (Location 1858)
+
+Our counterpart must be reachable in some way; we must be able to establish a responsive relationship with them that is neither erratic, and thus completely arbitrary, nor entirely controllable, and that from this very structure sets in motion the interplay between “callability,” self-efficacy and transformation, thus allowing us to feel alive. (Location 1881)
+
+If we no longer saw the world as a point of aggression, but as a point of resonance that we approach, not with an aim of appropriating, dominating, and controlling it but with an attitude of listening and responding, an attitude oriented toward self-efficacious adaptive transformation, toward mutually responsive reachability, modernity’s escalatory game would become meaningless and, more importantly, would be deprived of the psychological energy that drives it. A different world would become possible. (Location 1912)
+
+the belief has set in among political leaders that the basic parameters of political action are defined by markets, processes of globalization, and the logic of competition. They themselves have no control over these processes; there is no alternative. One can only act “wrongly,” fall behind in global competition, and thus squander one’s opportunities for future control. (Location 1987)
+
+Where “everything is under control,” the world no longer has anything to say to us, and where it has become newly uncontrollable, we can no longer hear it, because we cannot reach it. (Location 2027)

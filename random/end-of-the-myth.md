@@ -1,0 +1,35 @@
+# i do not remember!!!
+
+Instead, Madison put forth an ideal that defined virtue as diversity, as society’s plethora of uncountable impulses, opinions, desires, talents, thoughts, ambitions, and capabilities that create wealth, or “property.” And it is government’s “first object,” its primary obligation, to protect such wealth-producing diversity. (Location 464)
+
+Citizens spread thin over a wide territory would be less likely to join “common interest or passion,” to become “united and actuated” in their objectives, to “discover their own strength, and to act in unison with each other.” Expansion would break up society “into a greater variety of interests and pursuits of passions, which check each other.” (Location 481)
+
+“Extend the sphere,” Madison wrote, “and you take in a greater variety of parties and interests,” and you make it difficult for either a mob majority or a tyrannical minority to unite “to invade the rights of other citizens.” (Location 485)
+
+The founding meeting of the Organization of African Unity, for example, held in Addis Ababa in 1963, tacitly affirmed the Latin American version of uti possidetis. “We must take Africa as it is,” said Mali’s president, Modibo Keita, by which he meant recognizing the borders imposed by European colonists as the fixed boundaries of independent nations. (Location 547)
+
+Updated: Sep 16, 2022
+
+He offered detailed instruction on how to use government-subsidized predatory debt to induce assimilation. “We shall push our trading houses,” Jefferson wrote to Indiana’s territorial governor in 1803, the year he acquired Louisiana, and “be glad” when Native Americans fell into debt and had to sell their land.25 The trading houses needed to be government run, Jefferson said, since they could do “what private traders cannot do.” That is, they could sell goods at prices low enough to begin the cycle of debt: when “debts get beyond what the individuals can pay, they become willing to lop them off by a cession of lands.” (Location 712)
+
+The passive phrasing continued down the line. The United States would soon deploy an extraordinary amount of federal force to uproot and drive Native Americans west, many to their deaths. And yet its leaders described their fate as the result of an “unavoidable operation of natural causes.” “Their misfortunes,” said Lewis Cass, who as Andrew Jackson’s secretary of war executed Indian removal, “have been the consequence of a state of things which could not be controlled by them or us.” (Location 748)
+
+“border” was more often used to convey the vexed experience of living on the edge. A “borderer,” rather than a frontiersman, identified “he that dwells on the borders,” and “bordrage,” now obsolete, meant “to plunder the borders.” (Location 791)
+
+Updated: Sep 17, 2022
+
+The first, according to an Army report, was the line of white settlement, of traders, farmers, ranchers, hunters, and trappers. The second was a militarized “interior line,” required for “the special protection of the settlements,” and entailed a series of outposts and forts that “must necessarily be within our boundary.” The third was an “exterior line,” west of the settlement line, identified as advancing “into Indian country far beyond our boundary.”43 Within or beyond (the emphasis is in the original report) the boundary, the geography was baffling indeed. (Location 1140)
+
+Updated: Oct 11, 2022
+
+The Winning of the West, (Location 2097)
+
+Turner’s sequence—nature, settlement, labor, society, security, trade, trust, more trade, which leads to more security and trust, and then government—is important in that it crystallizes a number of uniquely American ideals about the relationship between the economy, rights, and sovereignty: Labor mixed with nature creates property. (Location 2170)
+
+In Elaine, Arkansas, white vigilantes, with help from the U.S. Army, slaughtered 237 sharecroppers for trying to organize a union, just one episode in the relentless race terror African Americans faced since the end of Reconstruction, which included over four thousand lynchings. (Location 2299)
+
+As it goes forward, the border divides dozens of indigenous communities, among them the Tohono O’odham, Yaqui, and Apache; small farms and large ranches; herds of cows and desert deer and packs of gray wolves; archaeological sites, bird and butterfly reserves, towns, streams, canals, canyons, roads, paths, cemeteries, and city streets. The Mexican town of Nogales became Nogales, Arizona, and Nogales, Mexico; Laredo split into Laredo and Nuevo Laredo. (Location 2646)
+
+“To revolutionize” became a popular phrase during this period in the U.S. press (much like the verb “to disrupt” today signals the creation of new markets by breaking up old production practices). (Location 2727)
+
+Prior to World War I, the border was relatively free. As the historian Mae Ngai points out, before the war the United States “had virtually open borders,” with the exception of laws explicitly excluding Chinese migrants. “You didn’t need a passport,” says Ngai. “You didn’t need a visa. There was no such thing as a green card. If you showed up at Ellis Island, walked without a limp, had money in your pocket, and passed a very simple [IQ] test in your own language, you were admitted.” (Location 2813)

@@ -1,0 +1,113 @@
+# holy fuck what is this
+
+if we allow the world to be run by logical people, we will only discover logical things. But in real life, most things aren’t logical – they are psycho-logical. (Location 207)
+
+The Nobel Prize-winning behavioural scientist Richard Thaler said, ‘As a general rule the US Government is run by lawyers who occasionally take advice from economists. Others interested in helping the lawyers out need not apply.’ (Location 317)
+
+A rational leader suggests changing course to avoid a storm. An irrational one can change the weather. Being slightly bonkers can be a good negotiating strategy: being rational means you are predictable, and being predictable makes you weak. Hillary thinks like an economist, while Donald is a game theorist, and is able to achieve with one tweet what would take Clinton four years of congressional infighting. That’s alchemy; you may hate it, but it works. (Location 343)
+
+If you are wholly predictable, people learn to hack you. (Location 351)
+
+My problem with Marxism is that it makes too much sense. (Location 378)
+
+And what is the single most important finding of the advertising industry? Perhaps it is that ‘advertisements featuring cute animals tend to be more successful than ads that don’t’. (Location 404)
+
+In many areas of policy and business there is much more value to be found in understanding how people behave in reality than how they should behave in theory. (Location 417)
+
+the appendix actually serves as a haven for bacteria in the digestive system that are valuable both in aiding digestion and (Location 431)
+
+1996 survey on the place of religion in public life in America, the Heritage Institute found that: (Location 444)
+
+Religion feels incompatible with modern life because it seems to involve delusional beliefs, but if the above results came from a trial of a new drug, we would want to add it to tap water. Just because we don’t know why it works, we should not be blind to the fact that it does. (Location 454)
+
+And in reality ‘context’ is often the most important thing in determining how people think, behave and act: this simple fact dooms many universal models from the start. (Location 484)
+
+Updated: Oct 14, 2020
+
+‘At the federal level I am a Libertarian. At the state level, I am a Republican. At the town level, I am a Democrat. In my family I am a socialist. And with my dog I am a Marxist – from each according to his abilities, to each according to his needs.’ (Location 549)
+
+There is a simple reason for this: you can never be fired for being logical. If your reasoning is sound and unimaginative, even if you fail, it is unlikely you will attract much blame. It is much easier to be fired for being illogical than it is for being unimaginative. (Location 588)
+
+‘The heart has reasons of which reason knows nothing,’ as Pascal (Location 660)
+
+‘The trouble with market research is that people don’t think what they feel, they don’t say what they think, and they don’t do what they say.’ (Location 687)
+
+Bill Bernbach: ‘Human nature hasn’t changed for a million years. It won’t even change in the next million years. Only the superficial things have changed. It is fashionable to talk about the changing man. A communicator must be concerned with the unchanging man – what compulsions drive him, what instincts dominate his every action, even though his language too often camouflages what really motivates him.’ (Location 690)
+
+For a business to be truly customer-focused, it needs to ignore what people say. Instead it needs to concentrate on what people feel. (Location 722)
+
+If a problem is solved using a discipline other than that practised by those who believe themselves the rightful guardians of the solution, you’ll face an uphill struggle no matter how much evidence you can amass. (Location 890)
+
+Upton Sinclair once remarked, ‘It is difficult to get a man to understand something, when his salary depends on his not understanding it.’ (Location 923)
+
+Updated: Dec 21, 2020
+
+behave, not knowing why you do. As Nassim Nicholas Taleb remarks, ‘There is no such thing as a rational or irrational belief – there is only rational or irrational behaviour.’ (Location 1070)
+
+Muslims went to great lengths to bury their dead; by contrast, allied bodies often lay on the battlefield for days before they were collected. The outcome was further casualties from disease for the allies, and comparatively lower levels of disease among their opponents. Scientifically unverified beliefs about burial norms drove rational and life-saving behaviour. (Location 1089)
+
+In trying to encourage rational behaviour, don’t confine yourself to rational arguments. (Location 1098)
+
+we do not have to rely solely on rational arguments; if that approach does not work – and often it doesn’t – there is a whole other set of emotional levers we can pull to achieve the same effect. Just ask the 1920s ad industry. (Location 1108)
+
+Consumer behaviour, and advertisers’ attempts to manipulate it, can be viewed as an immense social experiment, with considerable power to reveal the truth about what people want and what drives them. What people do with their own money (their ‘revealed preferences’) is generally a better guide to what they really want than their own reported wants and needs. (Location 1116)
+
+Nassim Nicholas Taleb remarks, ‘the way a question is phrased is itself information’. (Location 1133)
+
+An attendant problem is that people who are not skilled at mathematics tend to view the output of second-rate mathematicians with an high level of credulity, and attach almost mystical significance to their findings. (Location 1166)
+
+Updated: Dec 22, 2020
+
+By applying identical criteria to everyone in the name of fairness, you end up recruiting identical people. (Location 1331)
+
+‘Find one or two things your boss is rubbish at and be quite good at them.’ Complementary talent is far more valuable than conformist talent. (Location 1339)
+
+you don’t want the smooth, silver-haired patrician who looks straight out of central casting – you want his slightly overweight, less patrician but equally senior colleague in the ill-fitting suit. The former has become successful partly as a result of his appearance, the latter despite it. (Location 1380)
+
+Updated: Dec 26, 2020
+
+We constantly rewrite the past to form a narrative which cuts out the non-critical points – and which replaces luck and random experimentation with conscious intent. (Location 1560)
+
+But in coming up with anything genuinely new, unconscious instinct, luck and simple random experimentation play a far greater part in the problem-solving process than we ever admit. (Location 1567)
+
+the argumentative hypothesis\* suggests reason arose in the human brain not to inform our actions and beliefs, but to explain and defend them to others. In other words, it is an adaptation necessitated by our being a highly social species. (Location 1605)
+
+In this model, reason is not as Descartes thought, the brain’s science and research and development function – it is the brain’s legal and PR department. (Location 1613)
+
+The more data you have, the easier it is to find support for some spurious, self-serving narrative. The profusion of data in future will not settle arguments: it will make them worse. (Location 1628)
+
+We don’t value things; we value their meaning. What they are is determined by the laws of physics, but what they mean is determined by the laws of psychology. (Location 1743)
+
+Value resides not in the thing itself, but in the minds of those who value it. You can therefore create (or destroy) value it in two ways – either by changing the thing or by changing minds about what it is. (Location 1785)
+
+the nature of our attention affects the nature of our experience. (Location 1860)
+
+Updated: Dec 30, 2020
+
+In the words of Jonathan Haidt,\* ‘The conscious mind thinks it’s the Oval Office, when in reality it’s the press office.’ By this he means that we believe we are issuing executive orders, while most of the time we are actually engaged in hastily constructing plausible post-rationalisations to explain decisions taken somewhere else, for reasons we do not understand. (Location 2659)
+
+Pete Trimmer, a biologist at the University of Bristol, observed that the ability of Siberian hamsters to fight infections varied according to the lighting above their cages – longer hours of light (mimicking summer days) triggered a stronger immune response. Trimmer’s explanation was that the immune system is costly to run, and so as long as an infection is not lethal, it will wait for a signal that fighting it will not endanger the animal in other ways. It seems that the Siberian hamster subconsciously fights infection more energetically in summer because that is when food supplies are sufficiently plentiful to sustain an immune response. Trimmer’s model demonstrated that in challenging environments, animals fared better by weathering infections and conserving resources. Humphrey argues that people subconsciously respond to a sham treatment because it assures us that it will weaken the infection without overburdening the body’s resources. In populations where food is plentiful we can, in theory, mount a full immune response at any time, but Humphrey believes that the subconscious switch has not yet adapted to this – thus it takes a placebo to convince the mind that it is the right time for an immune response. (Location 2687)
+
+So, as Humphrey explained, much of the paraphernalia and practice of the military – flags, drums, uniforms, square-bashing, regalia, mascots and so forth – might be effectively bravery placebos, environmental cues designed to foster bravery and solidarity. (Location 2717)
+
+In countries including Korea and China, accidents at intersections have been reduced by simply displaying the number of seconds remaining before the lights turn green. (Location 2765)
+
+There is a parallel in the behaviour of bees, which do not make the most of the system they have evolved to collect nectar and pollen. Although they have an efficient way of communicating about the direction of reliable food sources, the waggle dance, a significant proportion of the hive seems to ignore it altogether and journeys off at random. In the short term, the hive would be better off if all bees slavishly followed the waggle dance, and for a time this random behaviour baffled scientists, who wondered why 20 million years of bee evolution had not enforced a greater level of behavioural compliance. However, what they discovered was fascinating: without these rogue bees, the hive would get stuck in what complexity theorists call ‘a local maximum’; they would be so efficient at collecting food from known sources that, once these existing sources of food dried up, they wouldn’t know where to go next and the hive would starve to death. So the rogue bees are, in a sense, the hive’s research and development function, and their inefficiency pays off handsomely when they discover a fresh source of food. It is precisely because they do not concentrate exclusively on short-term efficiency that bees have survived so many million years. (Location 3001)
+
+While a brand name is rarely a reliable guarantee that a product is the best you can buy, it is generally a reliable indicator that the product is not terrible. (Location 3032)
+
+Gerd Gigerenzer refers to this mental process as ‘Defensive Decision-Making’ – making a decision which is unconsciously designed not to maximise welfare overall but to minimise the damage to the decision maker in the event of a negative outcome. (Location 3189)
+
+‘psychophysics’, which is essentially the study of how the neurobiology of perception varies among different species, and how what we see, hear, taste and feel differs from ‘objective’ reality. (Location 3201)
+
+Updated: Dec 31, 2020
+
+have written this book from an incredibly optimistic perspective, but my argument is not that alchemy is always reliable, ethical or beneficial. Far from it – it is simply that we should not recoil from testing alchemical solutions because they do not fit with our reductionist ideas about how the world works. The purpose of this book is to persuade the reader that alchemy exists whether we like it or not, and that it is possible to use it for good; besides, if people are more aware of its existence, they will be better at spotting its misuses.\* (Location 3427)
+
+Alfred Korzybski (1879–1950) is perhaps most famous for his dictum that ‘The map is not the territory.’ He created a field called general semantics, and argued that because human knowledge of the world is limited by human biology, the nervous system and the languages humans have developed, no one can perceive reality, given that everything we know arrived filtered by the brain’s own interpretation of it. (Location 3470)
+
+When Kraft wanted to introduce a healthier formulation for their Mac & Cheese, they were terrified of a similar reaction, particularly as the malignant combination of social media and newspapers keen for a story can turn a small number of hostile tweets into national news. So they removed the artificial yellow dye and added paprika, turmeric and other natural replacements – and then kept silent about it. Practically no one noticed a thing – until they announced the change retrospectively, under the headline ‘It’s changed. But it hasn’t.’ This way, they were able to gain the potential custom of people who had previously avoided the product because of its artificiality, without creating an imagined taste change among its regular customers, who suddenly discovered they had been eating the healthier variant all along.\* (Location 3485)
+
+IKEA effect, because the furniture chain’s eccentric billionaire founder Ingvar Kamprad was convinced that the effort invested in buying and assembling his company’s furniture added to its perceived value. When working with IKEA I was once advised: ‘Do not, under any circumstances, suggest ways of making the IKEA experience more convenient. If you do, we shall fire you on the spot.’ (Location 3620)
+
+As Shakespeare wrote, ‘there is nothing either good or bad, but thinking makes it so’. (Location 3725)

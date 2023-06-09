@@ -1,0 +1,126 @@
+# more words
+
+https://nextnature.net/2009/12/the-playboy-interview-marshall-mcluhan
+
+"In other words, to the spoils belongs the victor."
+
+"Mysticism is just tomorrow's science dreamed today."
+
+"When an individual or social group feels that its whole identity is jeopardized by social or psychic change, its natural reaction is to lash out in defensive fury. But for all their lamentations, the revolution has already taken place."
+
+"The new technological environments generate the most pain among those least prepared to alter their old value structures"
+
+"After all, a man's detractors work for him tirelessly and for free."
+
+"Only the social organism, united and recognizing the challenge, can move to meet it."
+
+"I realized that artistic creation is the playback of ordinary experience – from trash to treasures."
+
+"Now man is beginning to wear his brain outside his skull and his nerves outside his skin; new technology breeds new man."
+
+"The central purpose of all my work is to convey this message, that by understanding media as they extend man, we gain a measure of control over them."
+
+"The compressional, implosive nature of the new electric technology is retrogressing Western man back from the open plateaus of literate values and into the heart of tribal darkness, into what Joseph Conrad termed "the Africa within.""
+
+"The attraction to hallucinogenic drugs is a means of achieving empathy with our penetrating electric environment, an environment that in itself is a drugless inner trip."
+
+"The younger generation's whole orientation is toward a return to the native, as reflected by their costumes, their music, their long hair and their sociosexual behavior."
+
+"But the instant nature of electric-information movement is decentralizing – rather than enlarging – the family of man into a new state of multitudinous tribal existences"
+
+"The most important quality of print is its repeatability; it is a visual statement that can be reproduced indefinitely, and repeatability is the root of the mechanical principle that has transformed the world since Gutenberg."
+
+"I expect to see the coming decades transform the planet into an art form; the new man, linked in a cosmic harmony that transcends time and space, will sensuously caress and mold and pattern every facet of the terrestrial artifact as if it were a work of art, and man himself will become an organic art form."
+
+"I feel that we're standing on the threshold of a liberating and exhilarating world in which the human tribe can become truly one family and man's consciousness can be freed from the shackles of mechanical culture and enabled to roam the cosmos. I have a deep and abiding belief in man's potential to grow and learn, to plumb the depths of his own being and to learn the secret songs that orchestrate the universe."
+
+"Cataclysmic environmental changes such as these are, in and of themselves, morally neutral; it is how we perceive them and react to them that will determine their ultimate psychic and social consequences. If we refuse to see them at all, we will become their servants. It's inevitable that the world-pool of electronic information movement will toss us all about like corks on a stormy sea, but if we keep our cool during the descent into the maelstrom, studying the process as it happens to us and what we can do about it, we can come through."
+
+", although I do obtain satisfaction from grasping their modes of operation. Such comprehension is inherently cool, since it is simultaneously involvement and detachment. This posture is essential in studying media. One must begin by becoming extraenvironmental, putting oneself beyond the battle in order to study and understand the configuration of forces. It's vital to adopt a posture of arrogant superiority; instead of scurrying into a corner and wailing about what media are doing to us, one should charge straight ahead and kick them in the electrodes. They respond beautifully to such resolute treatment and soon become servants rather than masters. But without this detached involvement, I could never objectively observe media; it would be like an octopus grappling with the Empire State Building. So I employ the greatest boon of literate culture: the power of man to act without reaction – the sort of specialization by dissociation that has been the driving motive force behind Western civilization."
+
+"No civilian can escape this environmental blitzkrieg, for there is, quite literally, no place to hide. But if we diagnose what is happening to us, we can reduce the ferocity of the winds of change and bring the best elements of the old visual culture, during this transitional period, into peaceful coexistence with the new retribalized society."
+
+"Electric technology is a qualitative extension of this age-old man-machine relationship; 20th Century man's relationship to the computer is not by nature very different from prehistoric man's relationship to his boat or to his wheel – with the important difference that all previous technologies or extensions of man were partial and fragmentary, whereas the electric is total and inclusive."
+
+"The point to remember here is that whenever we use or perceive any technological extension of ourselves, we necessarily embrace it. Whenever we watch a TV screen or read a book, we are absorbing these extensions of ourselves into our individual system and experiencing an automatic "closure" or displacement of perception; we can't escape this perpetual embrace of our daily technology unless we escape the technology itself and flee to a hermit's cave."
+
+"The cities, corporate extensions of our physical organs, are withering and being translated along with all other such extensions into information systems, as television and the jet – by compressing time and space – make all the world one village and destroy the old city-country dichotomy. New York, Chicago, Los Angeles – all will disappear like the dinosaur. The automobile, too, will soon be as obsolete as the cities it is currently strangling, replaced by new antigravitational technology. The marketing systems and the stock market as we know them today will soon be dead as the dodo, and automation will end the traditional concept of the job, replacing it with a role, and giving men the breath of leisure. The electric media will create a world of dropouts from the old fragmented society, with its neatly compartmentalized analytic functions, and cause people to drop in to the new integrated global-village community."
+
+"Electric technology, you see, does not require words any more than a digital computer requires numbers. Electricity makes possible – and not in the distant future, either – an amplification of human consciousness on a world scale, without any verbalization at all."
+
+"But that's only one of countless new realities we'll be confronted with in the tribal village. We must understand that a totally new society is coming into being, one that rejects all our old values, conditioned responses, attitudes and institutions. If you have difficulty envisioning something as trivial as the imminent end of elections, you'll be totally unprepared to cope with the prospect of the forthcoming demise of spoken language and its replacement by a global consciousness."
+
+"In our software world of instant electric communications movement, politics is shifting from the old patterns of political representation by electoral delegation to a new form of spontaneous and instantaneous communal involvement in all areas of decision making. In a tribal all-at-once culture, the idea of the "public" as a differentiated agglomerate of fragmented individuals, all dissimilar but all capable of acting in basically the same way, like interchangeable mechanical cogs in a production line, is supplanted by a mass society in which personal diversity is encouraged while at the same time everybody reacts and interacts simultaneously to every stimulus."
+
+"All technology becomes part of a shared ritual that the tribe desperately strives to keep stabilized and permanent; by its very nature, an oral-tribal society – such as Pharaonic Egypt – is far more stable and enduring than any fragmented visual society. The oral and auditory tribal society is patterned by acoustic space, a total and simultaneous field of relations alien to the visual world, in which points of view and goals make social change an inevitable and constant by product."
+
+"The day of the individualist, of privacy, of fragmented or "applied" knowledge, of "points of view" and specialist goals is being replaced by the over-all awareness of a mosaic world in which space and time are overcome by television, jets and computers – a simultaneous, "all-at-once" world in which everything resonates with everything else as in a total electrical field, a world in which energy is generated and perceived not by the traditional connections that create linear, causative thought processes, but by the intervals, or gaps, which Linus Pauling grasps as the languages of cells, and which create synaesthetic discontinuous integral consciousness."
+
+"Today, the process is reversed and the violence is being meted out, during this transitional period, to those who are nonassimilable into the new tribe. Not because of his skin color but because he is in a limbo between mechanical and electric cultures, the Negro is a threat, a rival tribe that cannot be digested by the new order. The fate of such tribes is often extermination."
+
+"The Negro and the Indian seem to always get a bad deal; they suffered first because they were tribal men in a mechanical world, and now as they try to detribalize and structure themselves within the values of the mechanical culture, they find the gulf between them and a suddenly retribalizing society widening rather than narrowing. The future, I fear, is not too bright for either – but particularly for the Negro."
+
+"The cultural aggression of white America against Negroes and Indians is not based on skin color and belief in racial superiority, whatever ideological clothing may be used to rationalize it, but on the white man's inchoate awareness that the Negro and Indian – as men with deep roots in the resonating echo chamber of the discontinuous, interrelated tribal world – are actually psychically and socially superior to the fragmented, alienated and dissociated man of Western civilization. Such a recognition, which stabs at the heart of the white man's entire social value system, inevitably generates violence and genocide. It has been the sad fate of the Negro and the Indian to be tribal men in a fragmented culture – men born ahead of rather than behind their time."
+
+"They're natural means of smoothing cultural transitions, and also a short cut into the electric vortex. The upsurge in drug taking is intimately related to the impact of the electric media. Look at the metaphor for getting high: turning on. One turns on his consciousness through drugs just as he opens up all his senses to a total depth involvement by turning on the TV dial."
+
+"His parents plopped him down in front of a TV set at the age of two to tranquilize him, and by the time he enters kindergarten, he's clocked as much as 4000 hours of television. As an IBM executive told me, "My children had lived several lifetimes compared to their grandparents when they began grade one.""
+
+"His natural instinct, conditioned by the electric media, is to bring all his senses to bear on the book he's instructed to read, and print resolutely rejects that approach, demanding an isolated visual attitude to learning rather than the Gestalt approach of the unified sensorium"
+
+"Because education, which should be helping youth to understand and adapt to their revolutionary new environments, is instead being used merely as an instrument of cultural aggression, imposing upon retribalized youth the obsolescent visual values of the dying literate age. Our entire educational system is reactionary, oriented to past values and past technologies, and will likely continue so until the old generation relinquishes power."
+
+"As the preliterate confronts the literate in the postliterate arena, as new information patterns inundate and uproot the old, mental breakdowns of varying degrees – including the collective nervous breakdowns of whole societies unable to resolve their crises of identity – will become very common"
+The Playboy Interview by instapaper.com
+
+McLuhan contends that all media – in and of themselves and regardless of the messages they communicate – exert a compelling influence on man and society. Prehistoric, or tribal, man existed in a harmonious balance of the senses, perceiving the world equally through hearing, smell, touch, sight and taste. But technological innovations are extensions of human abilities and senses that alter this sensory balance – an alteration that, in turn, inexorably reshapes the society that created the technology.
+
+According to McLuhan, there have been three basic technological innovations: the invention of the phonetic alphabet, which jolted tribal man out of his sensory balance and gave dominance to the eye; the introduction of movable type in the 16th Century, which accelerated this process; and the invention of the telegraph in 1844, which heralded an electronics revolution that will ultimately retribalize man by restoring his sensory balance. McLuhan has made it his business to explain and extrapolate the repercussions of this electronic revolution.
+
+Any approach to environmental problems must be sufficiently flexible and adaptable to encompass the entire environmental matrix, which is in constant flux.
+
+For the past 3500 years of the Western world, the effects of media – whether it's speech, writing, printing, photography, radio or television – have been systematically overlooked by social observers. Even in today's revolutionary electronic age, scholars evidence few signs of modifying this traditional stance of ostrichlike disregard.
+
+All media are extensions of man that cause deep and lasting changes in him and transform his environment.
+
+Because inherent in the artist's creative inspiration is the process of subliminally sniffing out environmental change. It's always been the artist who perceives the alterations in man caused by a new medium, who recognizes that the future is the present, and uses his work to prepare the ground for it.
+
+Most people, as I indicated, still cling to what I call the rearview-mirror view of their world. By this I mean to say that because of the invisibility of any environment during the period of its innovation, man is only consciously aware of the environment that has preceded it; in other words, an environment becomes fully visible only when it has been superseded by a new environment; thus we are always one step behind in our view of the world.
+
+You've got to remember that my definition of media is broad; it includes any technology whatever that creates extensions of the human body and senses, from clothing to the computer.
+
+And a vital point I must stress again is that societies have always been shaped more by the nature of the media with which men communicate than by the content of the communication. All technology has the property of the Midas touch; whenever a society develops an extension of itself, all other functions of that society tend to be transmuted to accommodate that new form; once any new technology penetrates a society, it saturates every institution of that society.
+
+Before the invention of the phonetic alphabet, man lived in a world where all the senses were balanced and simultaneous, a closed world of tribal depth and resonance, an oral culture structured by a dominant auditory sense of life. The ear, as opposed to the cool and neutral eye, is sensitive, hyperaesthetic and all-inclusive, and contributes to the seamless web of tribal kinship and interdependence in which all members of the group existed in harmony. The primary medium of communication was speech, and thus no man knew appreciably more or less than any other – which meant that there was little individualism and specialization, the hallmarks of "civilized" Western man.
+
+Another basic characteristic distinguishing tribal man from his literate successors is that he lived in a world of acoustic space, which gave him a radically different concept of time-space relationships.
+
+I mean space that has no center and no margin, unlike strictly visual space, which is an extension and intensification of the eye. Acoustic space is organic and integral, perceived through the simultaneous interplay of all the senses; whereas "rational" or pictorial space is uniform, sequential and continuous and creates a closed world with none of the rich resonance of the tribal echoland.
+
+The man of the tribal world led a complex, kaleidoscopic life precisely because the ear, unlike the eye, cannot be focused and is synaesthetic rather than analytical and linear.
+
+I want to map new terrain rather than chart old landmarks.
+
+In the past, the effects of media were experienced more gradually, allowing the individual and society to absorb and cushion their impact to some degree. Today, in the electronic age of instantaneous communication, I believe that our survival, and at the very least our comfort and happiness, is predicated on understanding the nature of our new environment, because unlike previous environmental changes, the electric media constitute a total and near-instantaneous transformation of culture, values and attitudes. This upheaval generates great pain and identity loss, which can be ameliorated only through a conscious awareness of its dynamics. If we understand the revolutionary transformations caused by new media, we can anticipate and control them; but if we continue in our self-induced subliminal trance, we will be their slaves.
+
+Any culture is an order of sensory preferences, and in the tribal world, the senses of touch, taste, hearing and smell were developed, for very practical reasons, to a much higher level than the strictly visual. Into this world, the phonetic alphabet fell like a bombshell, installing sight at the head of the hierarchy of senses. Literacy propelled man from the tribe, gave him an eye for an ear and replaced his integral in-depth communal interplay with visual linear values and fragmented consciousness.
+
+The whole man became fragmented man; the alphabet shattered the charmed circle and resonating magic of the tribal world, exploding man into an agglomeration of specialized and psychically impoverished "individuals," or units, functioning in a world of linear time and Euclidean space.
+
+The writings of Egyptian, Babylonian, Mayan and Chinese cultures were an extension of the senses in that they gave pictorial expression to reality, and they demanded many signs to cover the wide range of data in their societies – unlike phonetic writing, which uses semantically meaningless letters to correspond to semantically meaningless sounds and is able, with only a handful of letters, to encompass all meanings and all languages.
+
+This achievement demanded the separation of both sights and sounds from their semantic and dramatic meanings in order to render visible the actual sound of speech, thus placing a barrier between men and objects and creating a dualism between sight and sound.
+
+When tribal man becomes phonetically literate, he may have an improved abstract intellectual grasp of the world, but most of the deeply emotional corporate family feeling is excised from his relationship with his social milieu. This division of sight and sound and meaning causes deep psychological effects, and he suffers a corresponding separation and impoverishment of his imaginative, emotional and sensory life. He begins reasoning in a sequential linear fashion; he begins categorizing and classifying data.
+
+Your question reflects all the institutionalized biases of literate man. Literacy, contrary to the popular view of the "civilizing" process you've just echoed, creates people who are much less complex and diverse than those who develop in the intricate web of oral-tribal societies. Tribal man, unlike homogenized Western man, was not differentiated by his specialist talents or his visible characteristics, but by his unique emotional blends.
+
+"Already, computers offer the potential of instantaneous translation of any code or language into any other code or language. If a data feedback is possible through the computer, why not a feed-forward of thought whereby a world consciousness links into a world computer? Via the computer, we could logically proceed from translating languages to bypassing them entirely in favor of an integral cosmic unconsciousness somewhat similar to the collective unconscious envisioned by Bergson. The computer thus holds out the promise of a technologically engendered state of universal understanding and unity, a state of absorption in the logos that could knit mankind into one family and create a perpetuity of collective harmony and peace. This is the real use of the computer, not to expedite marketing or solve technical problems but to speed the process of discovery and orchestrate terrestrial – and eventually galactic – environments and energies. Psychic communal integration, made possible at last by the electronic media, could create the universality of consciousness foreseen by Dante when he predicted that men would continue as no more than broken fragments until they were unified into an inclusive consciousness. In a Christian sense, this is merely a new interpretation of the mystical body of Christ; and Christ, after all, is the ultimate extension of man."
+
+"Only alphabetic cultures have ever succeeded in mastering connected linear sequences as a means of social and psychic organization; the separation of all kinds of experiences into uniform and continuous units in order to generate accelerated action and alteration of form – in other words, applied knowledge – has been the secret of Western man's ascendancy over other men as well as over his environment."
+
+"The printing press, by spreading mass-produced books and printed matter across Europe, turned the vernacular regional languages of the day into uniform closed systems of national languages – just another variant of what we call mass media – and gave birth to the entire concept of nationalism."
+
+"The electric media are the telegraph, radio, films, telephone, computer and television, all of which have not only extended a single sense or function as the old mechanical media did – i.e., the wheel as an extension of the foot, clothing as an extension of the skin, the phonetic alphabet as an extension of the eye – but have enhanced and externalized our entire central nervous systems, thus transforming all aspects of our social and psychic existence."
+
+"McLUHAN: Basically, a hot medium excludes and a cool medium includes; hot media are low in participation, or completion, by the audience and cool media are high in participation. A hot medium is one that extends a single sense with high definition. High definition means a complete filling in of data by the medium without intense audience participation. A photograph, for example, is high definition or hot; whereas a cartoon is low definition or cool, because the rough outline drawing provides very little visual data and requires the viewer to fill in or complete the image himself. The telephone, which gives the ear relatively little data, is thus cool, as is speech; both demand considerable filling in by the listener. On the other hand, radio is a hot medium because it sharply and intensely provides great amounts of high-definition auditory information that leaves little or nothing to be filled in by the audience. A lecture, by the same token, is hot, but a seminar is cool; a book is hot, but a conversation or bull session is cool."

@@ -1,0 +1,27 @@
+# ahhhhhhhh
+
+To be a tourist is one of the characteristics of the ‘modern’ experience. It has become a marker of status in modern societies and is also thought to be necessary for good health and a cosmopolitan outlook (Location 238)
+
+If people do not travel, they lose status: travel is the marker of status. It is a crucial element of modern life to feel that travel and holidays are necessary. ‘I need a holiday’ reflects a modern discourse based on the idea that people’s physical and mental health will be restored if only they can ‘get away’ from time to time. (Location 267)
+
+‘Travel and tourism’ is the largest industry in the world, accounting for 9.4 per cent of world GDP and 8.2 per cent of all employment (Location 274)
+
+He argues that contemporary Americans cannot experience ‘reality’ directly but thrive on ‘pseudo-events’, with tourism being the prime example (Location 289)
+
+the thesis about how the tourist is placed at the centre of a strictly circumscribed world. Surrogate parents (travel agents, couriers, hotel managers) relieve the tourist of responsibility and protect him/her from harsh reality. Their solicitude restricts the tourist to the beach and certain approved objects of the tourist gaze (Location 298)
+
+All tourists, for MacCannell, embody a quest for authenticity, and this quest is a modern version of the universal human concern with the sacred. The tourist is a kind of contemporary pilgrim, seeking authenticity in other ‘times’ and other ‘places’ away from that person’s everyday life. (Location 321)
+
+‘The extraordinary’, as Rojek says, ‘spontaneously invites speculation, reverie, mind-voyaging and a variety of other acts of imagination’ (Location 472)
+
+Baudelaire relatedly describes the notion of flânerie: ‘dwelling in the throng, in the ebb and flo, the bustle, the fleeting’ (Location 516)
+
+The anthropological gaze can be the most intrusive since tourists will insist on staying for lengthy periods within the host community in order to get to know it ‘authentically’. (Location 584)
+
+They are ‘liberated from the real-world burdens of stores and product manufacturing, these brands are free to soar, less as the dissemination of goods and services than as collective hallucinations’ (Klein, 2000: 22). Klein brings out the importance in this of the ‘global teen market’, with about one billion young people disproportionately consuming similar consumer brands across the globe (Location 655)
+
+Both vagabonds and tourists move through other people’s spaces, they both separate physical closeness from moral proximity, and both set standards for happiness and the good life. According to Bauman, the good life has come to be thought of as akin to a ‘continuous holiday’ (Location 667)
+
+Updated: Jul 03, 2022
+
+Tourism necessarily involves daydreaming and anticipation of new or different experiences from those normally encountered in everyday life. (Location 1090)

@@ -1,0 +1,119 @@
+# ahhhhhhhh
+
+“There are three kinds of scenes, one called the tragic, second the comic, third the satyric. Their decorations are different and unalike each other in scheme. Tragic scenes are delineated with columns, pediments, statues and other objects suited to kings; comic scenes exhibit private dwellings, with balconies and views representing rows of windows, after the manner of ordinary dwellings; satyric scenes are decorated with trees, caverns, mountains and other rustic objects delineated in landscape style.” (Location 24)
+
+Updated: Mar 15, 2022
+
+All the cardinal’s household servants are like this: comfortable, soft-footed, and kept permanently apologetic and teased. And all the cardinal’s visitors are treated in the same way. If you had interrupted him every night for ten years, and sat sulking and scowling at him on each occasion, you would still be his honored guest. (Location 349)
+
+The thing people don’t understand about an army is its great, unpunctuated wastes of inaction: you have to scavenge for food, you are camped out somewhere with a rising water level because your mad capitaine says so, you are shifted abruptly in the middle of the night into some indefensible position, so you never really sleep, your equipment is defective, the gunners keep causing small unwanted explosions, the crossbowmen are either drunk or praying, the arrows are ordered up but not here yet, and your whole mind is occupied by a seething anxiety that things are going to go badly because il principe, or whatever little worshipfulness is in charge today, is not very good at the basic business of thinking. (Location 614)
+
+Why does everything you know, and everything you’ve learned, confirm you in what you believed before? Whereas in my case, what I grew up with, and what I thought I believed, is chipped away a little and a little, a fragment then a piece and then a piece more. With every month that passes, the corners are knocked off the certainties of this world: and the next world too. Show me where it says, in the Bible, “Purgatory.” Show me where it says “relics, monks, nuns.” Show me where it says “Pope.” (Location 647)
+
+For what’s the point of breeding children, if each generation does not improve on what went before? (Location 711)
+
+Updated: Mar 19, 2022
+
+What lodges in his mind, Thomas Cromwell’s, is that somebody makes these instruments of daily torture. Someone combs the horsehair into coarse tufts, knots them and chops the blunt ends, knowing that their purpose is to snap off under the skin and irritate it into weeping sores. Is it monks who make them, knotting and snipping in a fury of righteousness, chuckling at the thought of the pain they will cause to persons unknown? Are simple villagers paid—how, by the dozen?—for making flails with waxed knots? Does it keep farmworkers busy during the slow winter months? When the money for their honest labor is put into their hands, do the makers think of the hands that will pick up the product? (Location 1324)
+
+Updated: Mar 22, 2022
+
+You don’t have to spell out to her, keep this to yourself, because she knows to do that; you don’t have to lead this female child through a conversation with the little shifts and demurs that most women demand. She’s not like a flower, a nightingale: she’s like . . . like a merchant adventurer, he thinks. A look in the eye to skewer your intentions, and a deal done with a slap of the palm. (Location 1933)
+
+“It means fixity of purpose. It means endurance. It means having the strength to live with what constrains you.” (Location 2706)
+
+Updated: Mar 26, 2022
+
+Everything Chapuys does, he notices, is like something an actor does. When he thinks, he casts his eyes down, places two fingers to his forehead. When he sorrows, he sighs. When he is perplexed, he wags his chin, he half-smiles. He is like a man who has wandered inadvertently into a play, who has found it to be a comedy, and decided to stay and see it through. (Location 2870)
+
+Updated: Mar 28, 2022
+
+It is true that the cardinal always says, there are no safe places, there are no sealed rooms, you may as well stand on Cheapside shouting out your sins as confess to a priest anywhere in England. But when I spoke to the cardinal of killing, when I saw a shadow on the wall, there was no one to hear; so if Mark reckons I’m a murderer, that’s only because he thinks I look like one. (Location 2938)
+
+There is a world beyond this black world. There is a world of the possible. A world where Anne can be queen is a world where Cromwell can be Cromwell. He sees it; then he doesn’t. The moment is fleeting. But insight cannot be taken back. You cannot return to the moment you were in before. (Location 3026)
+
+Updated: Mar 30, 2022
+
+It is no use hoping to remember with the help of common objects, familiar faces. One needs startling juxtapositions, images that are more or less peculiar, ridiculous, even indecent. When you have made the images, you place them about the world in locations you choose, each one with its parcel of words, of figures, which they will yield you on demand. (Location 3192)
+
+Updated: Apr 04, 2022
+
+Whatever is happening elsewhere, whatever deceits and frustrations, you can forget them in the field. The hunter is among the most innocent of men; living in the moment makes him feel pure. When he returns in the evening, his body aches, his mind is full of pictures of leaves and sky; he does not want to read documents. His miseries, his perplexities have receded, and they will stay away, (Location 3726)
+
+Updated: Apr 05, 2022
+
+Childhood was like that; you are punished, then punished again for protesting. So, one learns not to complain; it is a hard lesson, but one never lost. (Location 3982)
+
+Updated: Apr 07, 2022
+
+He looks down at them and arranges his face. Erasmus says that you must do this each morning before you leave your house: “put on a mask, as it were.” He applies that to each place, each castle or inn or nobleman’s seat, where he finds himself waking up. (Location 4677)
+
+You can calculate the actions of unprincipled men. As long as you feed them they’ll run at your heels. Less calculable, more dangerous, are men like Stephen Vaughan, men who write to you, as Vaughan does: Thomas Cromwell, I would do anything for you. Men who say they understand you, whose embrace is so tight and ungiving they will carry you over the abyss. (Location 4687)
+
+Updated: Apr 14, 2022
+
+He sits quietly, watching Henry, trying by stillness to defuse the situation; to wrap the king in a blanketing silence, so that he, Henry, can listen to himself. (Location 4965)
+
+He has never told anyone this story. He doesn’t mind talking to Richard, to Rafe about his past—within reason—but he doesn’t mean to give away pieces of himself. (Location 5225)
+
+But it is no use to justify yourself. It is no good to explain. It is weak to be anecdotal. It is wise to conceal the past even if there is nothing to conceal. A man’s power is in the half-light, in the half-seen movements of his hand and the unguessed-at expression of his face. It is the absence of facts that frightens people: the gap you open, into which they pour their fears, fantasies, desires. (Location 5247)
+
+The prophet Elijah told Ahab that the dogs would lick his blood, and so it came to pass, as you would imagine, since only the successful prophets are remembered. (Location 5287)
+
+Updated: Apr 15, 2022
+
+“Wolsey always said that the making of a treaty is the treaty. It doesn’t matter what the terms are, just that there are terms. It’s the goodwill that matters. When that runs out, the treaty is broken, whatever the terms say.” (Location 5724)
+
+Updated: Apr 19, 2022
+
+It is not the stars that make us, Dr. Butts, it is circumstance and necessità, the choices we make under pressure; our virtues make us, but virtues are not enough, we must deploy our vices at times. (Location 7198)
+
+He draws the sun and the planets moving in their orbits according to the plan he has heard of from Father Copernicus. He shows how the world is turning on its axis, and nobody in the room denies it. Under your feet you can feel the tug and heft of it, the rocks groaning to tear away from their beds, the oceans tilting and slapping at their shores, the giddy lurch of Alpine passes, the forests of Germany ripping at their roots to be free. (Location 7213)
+
+There’s a feeling of power in reserve, a power that drives right through the bone, like the shiver you sense in the shaft of an ax when you take it into your hand. You can strike, or you can not strike, and if you choose to hold back the blow, you can still feel inside you the resonance of the omitted thing. (Location 7533)
+
+Updated: Apr 20, 2022
+
+It’s like dealing with a child; one day you bring in a box, and the child asks, what is in there? Then it goes to sleep and forgets, but next day, it asks again. It doesn’t rest until the box is open and the treats given out. (Location 7723)
+
+You learn nothing about men by snubbing them and crushing their pride. You must ask them what it is they can do in this world, that they alone can do. (Location 7740)
+
+it’s all very well planning what you will do in six months, what you will do in a year, but it’s no good at all if you don’t have a plan for tomorrow.” (Location 8114)
+
+When you are writing laws you are testing words to find their utmost power. Like spells, they have to make things happen in the real world, and like spells, they only work if people believe in them. (Location 8338)
+
+For they too are his countrymen: the generations of the uncounted dead, breathing through the living, stealing their light from them, the bloodless ghosts of lord and knave, nun and whore, the ghosts of priest and friar who feed on living England, and suck the substance from the future. (Location 8355)
+
+Updated: Apr 27, 2022
+
+“The world corrupts me, I think. Or perhaps it’s just the weather. It pulls me down and makes me think like you, that one should shrink inside, down and down to a little point of light, preserving one’s solitary soul like a flame under a glass. The spectacles of pain and disgrace I see around me, the ignorance, the unthinking vice, the poverty and the lack of hope, and oh, the rain—the rain that falls on England and rots the grain, puts out the light in a man’s eye and the light of learning too, for who can reason if Oxford is a giant puddle and Cambridge is washing away downstream, and who will enforce the laws if the judges are swimming for their lives? (Location 9228)
+
+Updated: Apr 28, 2022
+
+They regroup themselves while we sleep, the landscapes through which we move, and even the histories that trail us; the faces of the dead fade into other faces, as a spine of hills into the mist. (Location 9430)
+
+# second book
+
+Full bellies breed gentle manners. The pinch of famine makes monsters. (Location 561)
+
+Updated: May 03, 2022
+
+He doesn’t exactly miss the man. It’s just that sometimes, he forgets he’s dead. It’s as if they’re deep in conversation, and suddenly the conversation stops, he says something and no answer comes back. As if they’d been walking along and More had dropped into a hole in the road, a pit as deep as a man, slopping with rainwater. (Location 686)
+
+Updated: May 04, 2022
+
+Erasmus says that you should praise a ruler even for qualities he does not have. For the flattery gives him to think. And the qualities he presently lacks, he might go to work on them. (Location 1051)
+
+But anyone who knows the Bible as he does, knows that our God is a capricious God, and there’s no harm in hedging your bets. (Location 1283)
+
+Updated: May 06, 2022
+
+‘Men will tell you that they are so in love with you that it is making them ill. They will say they have stopped eating and sleeping. They say that they fear unless they can have you they will die. Then, the moment you give in, they get up and walk away and lose all interest. The next week they will pass you by as if they don’t know you.’ (Location 2937)
+
+Updated: May 07, 2022
+
+He is not like George Boleyn: he does not write verses to six women in the hope of bundling one of them into a dark corner where he can slip his cock into her. He writes to warn and to chastise, and not to confess his need but to conceal it. He understands honour but does not boast of his own. He is perfectly equipped as a courtier, but he knows the small value of that. He has studied the world without despising it. He understands the world without rejecting it. He has no illusions but he has hopes. He does not sleepwalk through his life. His eyes are open, and his ears for sounds others miss. (Location 4175)
+
+## third book
+
+That’s the point of a promise, he thinks. It wouldn’t have any value, if you could see what it would cost you when you made it. (Location 2902)

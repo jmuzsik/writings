@@ -1,0 +1,43 @@
+# book i liked
+
+Cats are not adoring like dogs. They don’t care. They can never be relied upon to shore up a human ego. They go their way, do their thing, are not subservient and will never apologise. No one has ever come across a cat apologising and if a cat did, it would patently be obvious it was not being sincere. (Location 1430)
+
+Updated: Jul 11, 2021
+
+This meant that by the end of their roundabout goads and their many implied and searching significances, still they had nothing from me and I felt justified in presenting this unfruitfulness to them because it was clear to me by this time that in life some people did not deserve the truth. They weren’t good enough for the truth. Not respectable enough to receive it. To lie or to omit therefore was fine. It was fine. That was what I thought. (Location 2669)
+
+Updated: Jul 12, 2021
+
+could sense her words, in one of those medieval, philosophical, ‘relative versus absolute’ dimensions, did have some ring of truth about them. (Location 3076)
+
+Updated: Jul 15, 2021
+
+There was dry heaving. An awful lot of dry heaving. All those stages too, increasingly against gravity, soon had me longing, begging, for the closure of my eyes. As it was, I could hardly keep them open. Got to sleep, I’d think. Got to lie down. Die soon. Why won’t they let me die soon? It seemed really, it was these women with their purging and intermittent praying, and not the poison, that were the cause of my dying in our bathroom that night. There was no let-up. They had split into two groups, one taking on the purging while the other handled the praying. Then they’d swap and only after much prolongation and exhaustion, did the nicer part of the evening bit by bit ensue. This existed in brief lulls, increasingly turning to longer lulls, each occurring after the purgers’ every administration to me followed by my body getting the poison out of me. Only then, when they’d withdraw to convene on next steps, could I remain on the floor, relieved, untampered-with, alone. Here, I’d contemplate the floor – the light dust on it, the odd hair on it, the specks of my recent emesis on it – and I’d consider the only true things in this world were these basic conditions of floor, dust and so on and that they, and only they, could sustain me forever. Sometimes though, I’d change my mind and it would become the panel of the bath, or the toilet bowl or the friendly bathroom wall against which occasionally I’d find myself, that I’d consider just as dependable of sustaining me forever too. (Location 3523)
+
+Now, I am not greatly naïve which means I’ve discovered that you live your life lots of days with things a bit out of joint, a bit moved-on, but not unmanageable, indeed only to be expected. But then a particular day comes when conditions across the board – with or without your knowledge, with or without your consent – completely have been changed around. (Location 3680)
+
+Amidst the silence and the staring, I took the chips, kept my money, then turned and walked out of the shop. I didn’t want these chips, didn’t want now my own money. Of course I should have left them, chips, money, both, on the counter and purged myself of that situation, but it’s hard to think of obvious things, of high-minded, honourable things, during the real-time of unexpected shocking things. How do you know after a time anyway, what is normal and high-minded and what is not? (Location 3699)
+
+Here was my mother, one of the Top Five pious women of the district, coming out with the unbelievable ‘God’s great and all but’. This was scandalous, also exciting, even rather refreshing – that a person of the sanctities was showing herself to be not one hundred per cent of the sanctities, or else there was nothing for it but that the sanctities would have to adjust in meaning to include the lower half of the body now as well. So we were right. My sisters and I were right. Ma had had trysts and assignations with men in her youth at ‘dot dot dot’ places – or had attempted to have them, or at least wasn’t against having them. In her deep recesses she upheld them. (Location 3851)
+
+couldn’t say I was in accord but people in love, I knew, saw crazy things all the time. (Location 3891)
+
+Why indeed? Once again, I was back to pondering this ‘marrying of the wrong spouse’ business. I don’t mean the outgrowing of what was once a successful union, with each partner contributing and committing to each other, celebrating each other until they reached a natural end of their shared path together when they’d part with or without love and a blessing before moving on to somebody or to something else. I mean this business of people marrying people they didn’t love and didn’t want and where someone from the outside might look in and shake their head and say that somebody ought not to be in such an intimate position in another somebody’s life if it turned out they were the wrong somebody. (Location 3897)
+
+Then there was not going for the one you want because by doing so, you might cause envy and anger to arise in others, others whom you knew wanted this person too. There were other reasons for the wrong spouse – fear of losing control through letting the desired into your subsoil, or marrying somebody close to the one you wanted but who didn’t want you so have their best friend, their colleague from work, a relative, even the person living next door to them. Of course there was the big one, the biggest reason for not marrying the right spouse. If you married that one, the one you loved and desired and who loved and desired you back, with the union proving true and good and replete with the most fulfilling happiness, well, what if this wonderful spouse didn’t fall out of love with you, or you with them, and neither of you either, got killed in the political problems? All those joyful evers and infinites? Are you sure, really, really sure, you could cope with the prospect of that? The community decided that no, it couldn’t. Great and sustained happiness was far too much to ask of it. (Location 3909)
+
+And now I knew da had been the wrong spouse because although she’d blamed him, always had blamed him – for his depressions, for staying in bed, for going into hospital, for dying, for not being in love with her – it wasn’t da. It was that she’d been in love, still was in love, with real milkman all the time. As for da, had he known he was the wrong spouse? Had he cared, been broken-hearted, not only because he’d been falsely positioned but because he’d allowed himself to be falsely positioned? Or had da known that ma, through all those years of marriage, even before marriage, had been for him the wrong spouse too? (Location 3920)
+
+This was more of their sensationalism, more of those makings-up, those lies of theirs that they wanted to be true and so in their heads and in their gossip they made true. (Location 3935)
+
+Updated: Jul 16, 2021
+
+The truth was dawning on me of how terrifying it was not to be numb, but to be aware, to have facts, retain facts, be present, be adult. (Location 4520)
+
+Updated: Jul 17, 2021
+
+She continued to be insecure about things which, until recently, and given her age, I shouldn’t have believed she’d consider, let alone give a care about. Then again, there was that sense of her getting younger even if she didn’t believe she was getting younger. So I suppose in that back-to-front way that happens in life, it was fitting that fears of growing old should assail her now in her new psychic age of sixteen. (Location 5013)
+
+Again there were disbelieving motions, though less vehement, more half believing, more hopeful, with the hand. Definitely ma was out of practice and dearly needed bolstering. That meant I had to be charitable, no, had to be pragmatic, because in truth I hadn’t noticed whether real milkman was interested in ma or nuclear boy’s ma or in any of them others. (Location 5081)
+
+So Yes-but had resurfaced to counter all my attempts to uplift my mother. Every compliment I initiated by way of encouragement, Yes-but got in there with its negatives and shot it down. When Yes-but wasn’t yes-butting, ma was looking in the mirror and sighing. (Location 5135)

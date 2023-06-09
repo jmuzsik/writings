@@ -1,0 +1,27 @@
+- Psychology
+  - "Mini-mental state": A practical method for grading cognitive state of patients for clinician. (34532 citations)
+    - http://dx.doi.org/10.1016/0022-3956(75)90026-6
+  - The moderator–mediator variable distinction in social psychological-research — conceptual, strategic, and statistical considerations. (23356)
+    - http://dx.doi.org/10.1037/0022-3514.51.6.1173
+  - The CES-D scale: a self-report depression scale for research in the general population. (17055)
+    - http://dx.doi.org/10.1177/014662167700100306
+  - A rating scale for depression. (16734)
+    - http://dx.doi.org/10.1136/jnnp.23.1.56
+  - An inventory for measuring depression. (16264)
+    - http://dx.doi.org/10.1001/archpsyc.1961.01710120031004
+  - The assessment and analysis of handedness: the Edinburgh inventory. (15517)
+    - http://dx.doi.org/10.1016/0028-3932(71)90067-4
+  - Not all Personal Goals are Personal: Comparing Autonomous and Controlled Reasons for Goals as Predictors of Effort and Attainment (992)
+    - https://journals.sagepub.com/doi/abs/10.1177/0146167298245010
+- Medical Statistics
+  - Regression models and life-tables. (28439)
+    - http://www.jstor.org/discover/10.2307/2985181?uid=3739256&uid=2&uid=4&sid=21104904748827
+  - Statistical methods for assessing agreement between two methods of clinical measurement. (23826)
+    - http://dx.doi.org/10.1016/S0140-6736(86)90837-8
+- Medicine
+  - Clinical diagnosis of Alzheimer’s disease: Report of the NINCDS-ADRDA Work Group under the auspices of Department of Health and Human Services Task Force on Alzheimer’s Disease. (17220)
+    - http://dx.doi.org/10.1212/WNL.34.7.939
+  - The MOS 36-item short-form health survey (SF-36): I. Conceptual framework and item selection. (14332)
+    - http://dx.doi.org/10.1097/00005650-199206000-00002
+  - Atherosclerosis — an inflammatory disease. (12119)
+    - http://dx.doi.org/10.1056/NEJM199901143400207
