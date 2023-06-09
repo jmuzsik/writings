@@ -1,7 +1,14 @@
 const path = require("path");
-const { readdirSync, readFileSync, lstatSync } = require("fs");
+const {
+  readdirSync,
+  readFileSync,
+  lstatSync,
+  writeFileSync,
+  mkdirSync,
+} = require("fs");
 const showdown = require("showdown");
-const axios = require("axios");
+
+const getDirName = path.dirname;
 
 const fileHtmlList = [];
 
@@ -17,7 +24,7 @@ function hi(fileNameList, addedPath = "") {
       addedPath ? "/" + addedPath : ""
     }/${fileName}`;
     if (lstatSync(currentPath).isDirectory()) {
-      if (fileName.startsWith(".")) {
+      if (fileName.startsWith(".") || fileName === "docs") {
         return;
       }
       const newList = readdirSync(currentPath);
@@ -26,8 +33,17 @@ function hi(fileNameList, addedPath = "") {
     }
     const result = readFileSync(currentPath);
     try {
+      let fileNameToSet = `${
+        addedPath ? "/" + addedPath : ""
+      }/${fileName}`.slice(
+        0,
+        `${addedPath ? "/" + addedPath : ""}/${fileName}`.length - 3
+      );
+      if (fileName === "init.md") {
+        fileNameToSet = addedPath;
+      }
       fileHtmlList.push({
-        fileName: currentPath,
+        fileName: fileNameToSet,
         htmlContent: converter.makeHtml(result.toString()),
       });
     } catch (err) {
@@ -38,13 +54,33 @@ function hi(fileNameList, addedPath = "") {
 
 hi(fileNameList);
 
-function bye() {}
+function bye() {
+  fileHtmlList.forEach(({ fileName, htmlContent }) => {
+    const pathToSet = path.join(
+      __dirname,
+      "..",
+      "docs",
+      "writings",
+      fileName + ".html"
+    );
+    try {
+      console.log("hi");
+      mkdirSync(getDirName(pathToSet));
+    } catch (err) {
+      console.log(err);
+    }
+    console.log("here", pathToSet);
+    writeFileSync(pathToSet, htmlContent);
+  });
+}
 
+console.log(fileHtmlList.map(({ fileName }) => fileName));
+// bye();
 // finish later
 // ...
 
 // steps:
-// 1. push into correct folders in html folder
+// 1. push into correct folders in docs folder
 // 2. guess i need list linking in index.html --- manual :(
 // 3. should just work, each list item has href="emotions/anger" or the like
 
