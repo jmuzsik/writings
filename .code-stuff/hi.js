@@ -56,13 +56,7 @@ hi(fileNameList);
 
 function bye() {
   fileHtmlList.forEach(({ fileName, htmlContent }) => {
-    const pathToSet = path.join(
-      __dirname,
-      "..",
-      "docs",
-      "writings",
-      fileName + ".html"
-    );
+    const pathToSet = path.join(__dirname, "..", "docs", fileName + ".html");
     try {
       console.log("hi");
       mkdirSync(getDirName(pathToSet));
