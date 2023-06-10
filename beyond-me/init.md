@@ -11,3 +11,7 @@ An air of fashion, which is but a badge of slavery, and proves that the soul has
 Love, in their bosoms, taking place of every nobler passion, their sole ambition is to be fair, to raise emotion instead of inspiring respect; and this ignoble desire, like the servility in absolute monarchies, destroys all strength of character.
 
 People of genius have, very frequently, impaired their constitutions by study, or careless inattention to their health, and the violence of their passions bearing a proportion to the vigour of their intellects, the sword’s destroying the scabbard has become almost proverbial, and superficial observers have inferred from thence, that men of genius have commonly weak, or to use a more fashionable phrase, delicate constitutions.
+
+## McCluhan
+
+Understanding a thing is to arrive at a metaphor for that thing by substituting something more familiar to us. And the feeling of familiarity is the feeling of understanding.

@@ -1,0 +1,7 @@
+# like wowzers
+
+## the mind
+
+### mccluhan
+
+As with a real space, something can be at the ‘back’ of our mind, in its ‘inner recesses’, or ‘beyond’ our mind, or ‘out’ of our mind. In argument we try to ‘get things through’ to someone, to ‘reach’ their ‘understanding’ or find a ‘common ground’, or ‘point out’, etc., all actions in real space taken over analogically into the space of the mind.
