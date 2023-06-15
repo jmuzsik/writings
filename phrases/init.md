@@ -6,3 +6,4 @@
 4. You have set our iniquities before you,  our secret sins in the light of your countenance. - bible
 5. Conscious feelings are mere colors laid on the surface of a mosaic which is held together by its stones - shadworth hodgson
 6. Reminiscence is a succession of excerptions.
+7. he go right after her and grab her and say bombocloth whoring gal, me can smell man stinking cockycheese ’pon you

@@ -1,7 +1,5 @@
 # book i liked
 
-he go right after her and grab her and say bombocloth whoring gal, me can smell man stinking cockycheese ’pon you. (Location 253)
-
 One of the things I fucking hate about my fellow Americans: whenever they fly to a foreign country, first thing they do, they try to find as much of America as they can get their hands on, even if it’s food in the shitty cafeteria. (Location 332)
 
 Updated: Jul 25, 2021

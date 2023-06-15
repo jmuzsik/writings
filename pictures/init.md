@@ -175,3 +175,86 @@ The decay of religious collective cognitive imperatives under the pressures of r
 ## science has the same goal as all the rest
 
 Science then, for all its pomp of factness, is not unlike some of the more easily disparaged outbreaks of pseudoreligions. In this period of transition from its religious basis, science often shares with the celestial maps of astrology, or a hundred other irrationalisms, the same nostalgia for the Final Answer, the One Truth, the Single Cause. In the frustrations and sweat of laboratories, it feels the same temptations to swarm into sects, even as did the Khabiru refugees, and set out here and there through the dry Sinais of parched fact for some rich and brave significance flowing with truth and exaltation.
+
+## religion interwoven into society (taylor)
+
+If we go back a few centuries in our civilization, we see that God was present in the above sense in a whole host of social practices—not just the political—and at all levels of society: for instance, when the functioning mode of local government was the parish, and the parish was still primarily a community of prayer; or when guilds maintained a ritual life that was more than pro forma; or when the only modes in which the society in all its components could display itself to itself were religious feasts, like, for instance, the Corpus Christi procession.
+
+if you go back even farther in human history, you come to archaic societies in which the whole set of distinctions we make between the religious, political, economic, social, etc., aspects of our society ceases to make sense. In these earlier societies, religion was “everywhere”,2 was interwoven with everything else, and in no sense constituted a separate “sphere” of its own.
+
+## what to believe an option among many
+
+a move from a society where belief in God is unchallenged and indeed, unproblematic, to one in which it is understood to be one option among others, and frequently not the easiest to embrace.
+
+Nevertheless, it seems to me evident that there are big differences between these societies in what it is to believe, stemming in part from the fact that belief is an option, and in some sense an embattled option in the Christian (or “post-Christian”) society, and not (or not yet) in the Muslim ones.
+
+So what I want to do is examine our society as secular in this third sense, which I could perhaps encapsulate in this way: the change I want to define and trace is one which takes us from a society in which it was virtually impossible not to believe in God, to one in which faith, even for the staunchest believer, is one human possibility among others.
+
+## fullness: from outside us (god) to within us (the individual)
+
+help us to situate a place of fullness, to which we orient ourselves morally or spiritually. They can orient us because they offer some sense of what they are of: the presence of God, or the voice of nature, or the force which flows through everything, or the alignment in us of desire and the drive to form.
+
+for believers, the account of the place of fullness requires reference to God, that is, to something beyond human life and/or nature; where for unbelievers this is not the case; they rather will leave any account open, or understand fullness in terms of a potentiality of human beings understood naturalistically.
+
+So there is the notion of receiving power or fullness in a relation; but the receiver isn’t simply empowered in his/her present condition; he/she needs to be opened, transformed, brought out of self. This is a very Christian formulation. In order to make the contrast with modern unbelief, perhaps it would be good to appose to it another formulation, more “Buddhist”: here the personal relation might drop out as central. But the emphasis would be all the stronger on the direction of transcending the self, opening it out, receiving a power that goes beyond us.
+
+For modern unbelievers, the predicament is quite different. The power to reach fullness is within. This sense of ourselves as beings both frail and courageous, capable of facing a meaningless, hostile universe without faintness of heart, and of rising to the challenge of devising our own rules of life, can be an inspiring one,
+
+people in earlier ages of our culture, for whom moving to fullness just meant getting closer to God.
+
+We all learn to navigate between two standpoints: an “engaged” one in which we live as best we can the reality our standpoint opens us to; and a “disengaged” one in which we are able to see ourselves as occupying one standpoint among a range of possible ones, with which we have in various ways to coexist.
+
+we have moved from a world in which the place of fullness was understood as unproblematically outside of or “beyond” human life, to a conflicted age in which this construal is challenged by others which place it (in a wide range of different ways) “within” human life.
+
+## strange connection btw christianity and buddhism
+
+In both Buddhism and Christianity, there is something similar in spite of the great difference in doctrine. This is that the believer or devout person is called on to make a profound inner break with the goals of flourishing in their own case; they are called on, that is, to detach themselves from their own flourishing, to the point of the extinction of self in one case, or to that of renunciation of human fulfillment to serve God in the other. The respective patterns are clearly visible in the exemplary figures. The Buddha achieves Enlightenment; Christ consents to a degrading death to follow his father’s will.
+
+## the individual as god
+
+I would like to claim that the coming of modern secularity in my sense has been coterminous with the rise of a society in which for the first time in history a purely self-sufficient humanism came to be a widely available option. I mean by this a humanism accepting no final goals beyond human flourishing, nor any allegiance to anything else beyond this flourishing. Of no previous society was this true.
+
+## agape
+
+the Christian story of our potential transformation by agape requires that we see our life as going beyond the bounds of its “natural” scope between birth and death; our lives extend beyond “this life”.
+
+A kingdom could only be conceived as grounded in something higher than mere human action in secular time.
+
+But in the enchanted world, the meaning exists already outside of us, prior to contact; it can take us over, we can fall into its field of force. It comes on us from the outside.
+
+## the past as present
+
+Our past is sedimented in our present, and we are doomed to misidentify ourselves, as long as we can’t do justice to where we come from.
+
+Perhaps the clearest sign of the transformation in our world is that today many people look back to the world of the porous self with nostalgia. As though the creation of a thick emotional boundary between us and the cosmos were now lived as a loss. The aim is to try to recover some measure of this lost feeling. So people go to movies about the uncanny in order to experience a frisson. Our peasant ancestors would have thought us insane. You can’t get a frisson from what is really in fact terrifying you.
+
+## the universe as god
+
+Now imagine that this is not a theory, but how we sense things to be; and thus how we seem to experience them. Then the inside is no longer just inside; it is also outside. That is, emotions which are in the very depths of human life exist in a space which takes us beyond ourselves, which is porous to some outside power, a person-like power.
+
+God figures in this world as the dominant spirit, and moreover, as the only thing that guarantees that in this awe-inspiring and frightening field of forces, good will triumph.
+
+But living in the enchanted, porous world of our ancestors was inherently living socially. It was not just that the spiritual forces which impinged on me often emanated from people around me; e.g., the spell cast by my enemy, or the protection afforded by a candle which has been blessed in the parish church. Much more fundamental, these forces often impinged on us as a society, and were defended against by us as a society.
+
+Turning “heretic” and rejecting this power, or condemning the practice as idolatrous, is not just a personal matter. Villagers who hold out, or even denounce the common rites, put the efficacy of these rites in danger, and hence pose a menace to everyone.
+
+In these earlier days, societies, and not just parishes but whole kingdoms, were seen as standing together towards God, responsible for the “orthodoxy” (right praise) of their members. The deviancy of some would call down punishment on all.
+
+## the organization of medieval catholicism
+
+Now without overlooking these points of tension, we can read medieval Catholicism in one way as incorporating a kind of equilibrium based on hierarchical complementarity. This was certainly recognized as an organizing principle for the society as a whole. For instance, the famous formula: the clergy pray for all, the lords defend all, the peasants labour for all, encapsulates the idea that society is organized in complementary functions, which nevertheless are of unequal dignity.
+
+
+## the power of the weak through religious mysticism
+
+Turner cites a number of African societies formed by militarily dominant invaders who have conquered the indigenous people. “The invaders control high political office, such as the kingship, provincial governorships, and headmanships. On the other hand, the indigenous people, through their leaders, frequently are held to have a mystical power over the fertility of the earth and of all on it. These autochthonous people have religious power, the ‘power of the weak’ as against the jural-political power of the strong, and represent the undivided land itself against the political system with its internal segmentation and hierarchies of authority.”
+
+What all these situations have in common is that there is a play of structure and anti-structure, code and anti-code; this either takes the form of the code’s being momentarily suspended or transgressed; or else, as with the relation between conquerors and autochthonous above, the code itself allows for a counter-principle to the dominant source of power; it opens space for a complementary “power of the weak”.
+
+But Turner puts them in the context of the pull of “communitas”, which takes us beyond this level of explanation. The sense of “communitas” is the intuition we all share that, beyond the way we relate to each other through our diversified coded roles, we also are a community of many-sided human beings, fundamentally equal, who are associated together. It is this underlying community which breaks out in moments of reversal or transgression, and which gives legitimacy to the power of the weak.
+
+## eternity is 'higher time'
+
+‘eternity’. And that isn’t wrong, because it is the philosophically and theologically consecrated term for higher time.
+
+Now higher times gather and re-order secular time. They introduce “warps” and seeming inconsistencies in profane time-ordering. Events which were far apart in profane time could nevertheless be closely linked. Benedict Anderson in a penetrating discussion of the some of the same issues I am trying to describe here, quotes Auerbach on the relation prefiguring-fulfilling in which events of the old Testament were held to stand to those in the New, for instance the sacrifice of Isaac and the Crucifixion of Christ. These two events were linked through their immediate contiguous places in the divine plan. They are drawn close to identity in eternity, even though they are centuries (that is, “aeons” or “saecula”) apart. In God’s time there is a sort of simultaneity of sacrifice and Crucifixion.
