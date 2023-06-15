@@ -244,7 +244,6 @@ In these earlier days, societies, and not just parishes but whole kingdoms, were
 
 Now without overlooking these points of tension, we can read medieval Catholicism in one way as incorporating a kind of equilibrium based on hierarchical complementarity. This was certainly recognized as an organizing principle for the society as a whole. For instance, the famous formula: the clergy pray for all, the lords defend all, the peasants labour for all, encapsulates the idea that society is organized in complementary functions, which nevertheless are of unequal dignity.
 
-
 ## the power of the weak through religious mysticism
 
 Turner cites a number of African societies formed by militarily dominant invaders who have conquered the indigenous people. “The invaders control high political office, such as the kingship, provincial governorships, and headmanships. On the other hand, the indigenous people, through their leaders, frequently are held to have a mystical power over the fertility of the earth and of all on it. These autochthonous people have religious power, the ‘power of the weak’ as against the jural-political power of the strong, and represent the undivided land itself against the political system with its internal segmentation and hierarchies of authority.”
@@ -258,3 +257,51 @@ But Turner puts them in the context of the pull of “communitas”, which takes
 ‘eternity’. And that isn’t wrong, because it is the philosophically and theologically consecrated term for higher time.
 
 Now higher times gather and re-order secular time. They introduce “warps” and seeming inconsistencies in profane time-ordering. Events which were far apart in profane time could nevertheless be closely linked. Benedict Anderson in a penetrating discussion of the some of the same issues I am trying to describe here, quotes Auerbach on the relation prefiguring-fulfilling in which events of the old Testament were held to stand to those in the New, for instance the sacrifice of Isaac and the Crucifixion of Christ. These two events were linked through their immediate contiguous places in the divine plan. They are drawn close to identity in eternity, even though they are centuries (that is, “aeons” or “saecula”) apart. In God’s time there is a sort of simultaneity of sacrifice and Crucifixion.
+
+## fuck the ground
+
+Me want all of you to fuck the ground good. One of we laugh loud because this just turn into TV comedy and the police kick him in the side two time. Me say fi fuck the dirt, the policeman say. So we hump the ground and keep humping when he say continue. The ground tough and have pebble and bottle and dirt and me hips slamming into it and me skin starting to rub and me stop. Who tell you fi stop the policeman say and light the newspaper. Fuck, fuck, fuck, me say fi fuck, the policeman shout and shove the burning newspaper on me batty. Me scream and he call me a girl. Me say you fi fuck, him say. And then he burn another boy and another boy and all of we fucking the ground. Then the policeman move up the line saying, You can’t fuck, go home. You can’t fuck neither remove youself. You look like you can fuck, stay. You go, you go. Hold on, hold on now, you move like is you the one who getting the fucking. Batty boy, remove youself, and you, you better stay. He mean me.
+
+## a gun on the person
+
+Is a hell of a thing when a gun come home to live with you. The people who live with you notice it first. The woman I live with talk to me different. Everybody talk to you different when them see a new bulge in you pants. No, is not that at all. When a gun come to live in the house it’s the gun, not even the person who keep it, that have the last word. It come between man and woman talk, not just serious reasoning but even a little thing.
+
+Gun hunger worse than woman hunger for at least maybe a woman might hungry for you back.
+
+## thought creates the feeling
+
+Running make me think that surely it soon be curfew so me can climb out of the gully and go somewhere where they be food to thief or water to drink, but me cuss ’cause there me was thinking about food again and me belly groan and cut me up with pain. Is true, you do feel better about things the further you run from it.
+
+## leviticus lol
+
+If a man call himself Rasta today, by next week that is him speaking prophecy. He don’t have to be too smart either, just know one or two hellfire and brimstone verse from the Bible. Or just claim it come from Leviticus since nobody ever read Leviticus. This is how you know. Nobody who get to the end of Leviticus can still take that book seriously. Even in a book full of it, that book is mad as shit.
+
+most of the book is like this:
+
+- If the offering to the Lord is a burnt offering of birds, you are to offer a dove or a young pigeon. 15 The priest shall bring it to the altar, wring off the head and burn it on the altar; its blood shall be drained out on the side of the altar. 16 He is to remove the crop and the feathers[a] and throw them down east of the altar where the ashes are. 17 He shall tear it open by the wings, not dividing it completely, and then the priest shall burn it on the wood that is burning on the altar. It is a burnt offering, a food offering, an aroma pleasing to the Lord.
+
+## retribution as a reflection
+
+But Papa-Lo must have people seeing him do something. Like he making a difference on something that already gone and done and can’t change. He try to make an example out of her, burn down her entire life and kick her out with him own boot, but all he do was make an example out of himself. Like some naigger being extra wicked to impress the massa.
+
+## a stone face
+
+He trying to be brave, looking straight at me, eye to eye and frowning a little because he don’t know yet that you have to age into a stone face. It’s the first time he doing it, he know and I know, the son trying to stare down the father. But boy is a boy and not a man. He can’t hold it, not yet. He look aways first and just as quick turn on the stare again, but he just lose the round and he know it.
+
+## immune from retribution? a smart criminal vs a fool?
+
+So smart that he was the only one who catch the drift that after doing what we do there was not coming back. I like when a man can read writing on the wall. But Heckle should have known that he have nothing to worry about, retribution was coming for the stupid, not the smart. If I spoke to him I would have tell him, Brethren, don’t fret. The world smarter with you still in it.
+
+## the fallacy that mans expressions revolves around her
+
+This is something I’ve picked up from American women, this trying to read every single thing a man does as containing a secret message for me.
+
+## the past, what to do with the past
+
+You know I never think about the fucking past. That shit will fuck you up and you can’t fuck it back.
+
+Every time I see you, you’re a different man.
+—Me is the same man.
+—No. You’re not. You just say you never think about the past. That’s why you can’t see what you look like.
+
+Me don’t know what the r’ass you saying. Walking in and running your mouth with all sort of foolishness. Any more of this, a violin going start play.

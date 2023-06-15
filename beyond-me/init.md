@@ -15,3 +15,9 @@ People of genius have, very frequently, impaired their constitutions by study, o
 ## McCluhan
 
 Understanding a thing is to arrive at a metaphor for that thing by substituting something more familiar to us. And the feeling of familiarity is the feeling of understanding.
+
+A theory is thus a metaphor between a model and data. And understanding in science is the feeling of similarity between complicated data and a familiar model.
+
+You cannot, absolutely cannot think of time except by spatializing it. Consciousness is always a spatialization in which the diachronic is turned into the synchronic, in which what has happened in time is excerpted and seen in side-by-sideness.
+
+Chaos darkened the holy brightnesses of the unconscious world. Hierarchies crumpled. And between the act and its divine source came the shadow, the pause that profaned, the dreadful loosening that made the gods unhappy, recriminatory, jealous. Until, finally, the screening off of their tyranny was effected by the invention on the basis of language of an analog space with an analog ‘I’. The careful elaborate structures of the bicameral mind had been shaken into consciousness.

@@ -18,3 +18,7 @@ https://www.huffpost.com/entry/what-does-it-mean-to-be-i_b_3531407
 https://www.livescience.com/33720-13-scientifically-proven-signs-love.html
 
 https://thoughtcatalog.com/briannaewiest/2013/06/the-difference-between-being-in-love-and-being-in-love-with-love/
+
+## from brief history of seven killings
+
+Damn kid thinking he knows what love is. Love is settling, that’s really all it is. Fucking settling.

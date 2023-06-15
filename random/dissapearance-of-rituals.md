@@ -1,7 +1,5 @@
 # i liked this book
 
-remember talking about it with Janice one day, we walked in park slope...
-
 We can define rituals as symbolic techniques of making oneself at home in the world. They transform being-in-the-world into a being-at-home. They turn the world into a reliable place. They are to time what a home is to space: they render time habitable. They even make it accessible, like a house. They structure time, furnish it. (Location 139)
 
 Today, time lacks a solid structure. It is not a house but an erratic stream. It disintegrates into a mere sequence of point-like presences; it rushes off. There is nothing to provide time with any hold [Halt]. Time that rushes off is not habitable. (Location 150)
