@@ -1,11 +1,5 @@
 # i liked this book
 
-We can define rituals as symbolic techniques of making oneself at home in the world. They transform being-in-the-world into a being-at-home. They turn the world into a reliable place. They are to time what a home is to space: they render time habitable. They even make it accessible, like a house. They structure time, furnish it. (Location 139)
-
-Today, time lacks a solid structure. It is not a house but an erratic stream. It disintegrates into a mere sequence of point-like presences; it rushes off. There is nothing to provide time with any hold [Halt]. Time that rushes off is not habitable. (Location 150)
-
-Neoliberalism often makes use of morality for its own ends. Moral values are consumed as marks of distinction. They are credited to the ego-account, appreciating the value of self. They increase our narcissistic self-respect. Through values we relate not to community but to our own egos. (Location 190)
-
 Those who devote themselves to rituals must ignore themselves. Rituals produce a distance from the self, a self-transcendence. They depsychologize and de-internalize those enacting them. (Location 209)
 
 It is no accident that ‘religion’ is derived from relegere: to take note. (Location 224)

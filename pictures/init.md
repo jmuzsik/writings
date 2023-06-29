@@ -339,3 +339,11 @@ All who believe in separation have a basic fear of retaliation and abandonment. 
 ## a foundational way of existing
 
 It is therefore essential to teach you that you must be included, and that the belief that you are not is the only thing that you must exclude.
+
+## metaphor of rituals as a home, as a way to structure time
+
+We can define rituals as symbolic techniques of making oneself at home in the world. They transform being-in-the-world into a being-at-home. They turn the world into a reliable place. They are to time what a home is to space: they render time habitable. They even make it accessible, like a house. They structure time, furnish it.
+
+Today, time lacks a solid structure. It is not a house but an erratic stream. It disintegrates into a mere sequence of point-like presences; it rushes off. There is nothing to provide time with any hold. Time that rushes off is not habitable.
+
+## 
