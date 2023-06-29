@@ -346,4 +346,50 @@ We can define rituals as symbolic techniques of making oneself at home in the wo
 
 Today, time lacks a solid structure. It is not a house but an erratic stream. It disintegrates into a mere sequence of point-like presences; it rushes off. There is nothing to provide time with any hold. Time that rushes off is not habitable.
 
-## 
+## to be at war with the world is to be at war with oneself
+
+I said before that the ego's friend is not part of you, because the ego perceives itself at war and therefore in need of allies. You who are not at war must look for brothers and recognize all whom you see as brothers, because only equals are at peace. Because God's equal Sons have everything, they cannot compete. Yet if they perceive any of their brothers as anything other than their perfect equals, the idea of competition has entered their minds. Do not underestimate your need to be vigilant against this idea, because all your conflicts come from it. It is the belief that conflicting interests are possible, and therefore you have accepted the impossible as true. Is that different from saying you perceive yourself as unreal?
+
+## the totality of all. all beings, all scenarios, all situations abound with love
+
+You are the Will of God. Do not accept anything else as your will, or you are denying what you are. Deny this and you will attack, believing you have been attacked. But see the love of God in you, and you will see it everywhere because it is everywhere. See his abundance in everyone, and you will know that you are in him with them. They are part of you, as you are part of God. You are as lonely without understanding this as God himself is lonely when his sons do not know him. The peace of God is understanding this. There is only one way out of the world's thinking, just as there was only one way into it. Understand totally by understanding totality.
+
+## how belief can be so very unbelievable
+
+The Holy Spirit will teach you to perceive beyond your belief, because truth is beyond belief and his perception is true. The ego can be completely forgotten at any time, because it is a totally incredible belief, and no one can keep a belief he has judged to be unbelievable. The more you learn about the ego, the more you realize that it cannot be believed. The incredible cannot be understood because it is unbelievable. The meaninglessness of perception based on the unbelievable is apparent, but it may not be recognized as being beyond belief, because it is made by belief.
+
+## you have no charisma
+
+he said it to me, it's on my mind too much now
+
+## sitting and reading the newspaper in a bungalow with a view of the lake in prospect park
+
+Some men from south asia taking photos of one another. Of me, because i'm in the bungalow sitting there while they take pics - like a part of the scenery, a part of the culture of brooklyn. A young white male reading a newspaper.
+
+A bunch of jewish girls graduating from something. They take one pic after the next, an older woman as a photographer. Teenage girls, 18 perhaps. The throwing of the hat up synchronously. This is so cute, they say over and over. Oh this is so fun, they say over and over. I read with occasional glad eyes witnessing the scene. Then one comes up to me, sir - do you mind if we use the bungalow. I say, of course. I get up, i leave.
+
+## strange way of seeing depression
+
+When you are sad, know this need not be. Depression comes from a sense of being deprived of something you want and do not have. You remember that you are deprived of nothing except by your own decisions and then decide otherwise.
+
+## fight for yourself, fight against your ego
+
+Yet you are not efficient sufficiently vigilant against the demands of the ego to disengage itself. This need not be. The habit of engaging with God in His creations is easily made if you are Actively refuse to let your mind wander. The problem is one of concentration, a belief that no one - including yourself - is worth consistent effort. Side with me consistently against this deception, and do not permit this shabby belief to pull you back to being disheartened or useless to yourself and to me, only the ego can be disheartened.
+
+## let god shine on you
+
+You are a mirror of truth, in which God Himself shines in perfect light. To the ego's dark glass you need but say, "I will not look there because I know these images are not true." Then let the Holy One shine on you in peace, knowing that this and only this must be. His Mind shone on you in your creation and brought your mind into being. His Mind still shines on you and must shine through you. Your ego cannot prevent Him from shining on you, but it can prevent you from letting Him shine through you.
+
+## the debt you owe to those who help you find the way
+
+In learning to escape from illusions, your debt to your brother is something you must never forget.
+
+I will go with you to the Holy One, and through my perception He can bridge the little gap. Your gratitude to your brother is the only gift I want. I will bring it to God for you, knowing that to know your brother _is_ to know God. If you are grateful to your brother, you are grateful to God for what He created.
+
+## imagine saying this to someone right after they woke up (hypnotic)
+
+Hear, then, the one answer of the Holy Spirit to all the questions the ego raises: You are a child of God, a priceless part of His Kingdom, which He created as part of Him. ²Nothing else exists and only this is real. ³You have chosen a sleep in which you have had bad dreams, but the sleep is not real and God calls you to awake. ⁴There will be nothing left of your dream when you hear Him, because you will awaken. ⁵Your dreams contain many of the ego’s symbols and they have confused you. ⁶Yet that was only because you were asleep and did not know. ⁷When you wake you will see the truth around you and in you, and you will no longer believe in dreams because they will have no reality for you. ⁸Yet the Kingdom and all that you have created there will have great reality for you, because they are beautiful and true.
+
+## the center of a thought system
+
+**What you must recognize is that when you do not share a thought system, you are weakening it. Those who believe in it therefore perceive this as an attack on them. This is because everyone identifies himself with his thought system, and every thought system centers on what you believe you are.** If the center of the thought system is true, only truth extends from it. But if a lie is at its center, only deception proceeds from it.
