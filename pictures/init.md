@@ -310,6 +310,14 @@ Me don’t know what the r’ass you saying. Walking in and running your mouth w
 
 When you are sad, know this need not be. Depression comes from a sense of being deprived of something you want and do not have. You remember that you are deprived of nothing except by your own decisions and then decide otherwise.
 
+## more about depression, seeing it as a an obsession with one's identity (and a bit about suicide)
+
+Depression, by contrast, is based on an excessive relation to self. Wholly incapable of leaving the self behind, of transcending ourselves and relating to the world, we withdraw into our shells. The world disappears. We circle around ourselves, tortured by feelings of emptiness.
+
+Today, narcissistic disorders are on the rise because we are increasingly losing the ability to conduct social interactions outside the boundaries of the self. The narcissistic homo psychologicus is captivated by itself, caught in an intricate inwardness. What results is a poverty in world, with the self simply circling around itself. Thus, homo psychologicus falls into a depression.
+
+Rather, he is driven to it because life has become empty, meaningless and unbearable, because he is tired and exhausted, because he can no longer produce, can no longer produce himself. He commits suicide because of a rejection of life. It is not a voluntary death, but a forced death, a death out of exhaustion.
+
 ## letting god 'shine through you'
 
 You are a mirror of truth, in which God himself shines in perfect light. To the ego's dark glass you need but say, "I will not look there because I know these images are not true." Then let the Holy One shine on you in peace, knowing that this and only this must be. His mind shone on you in your creation and brought your mind into being. His mind still shines on you and must shine through you. Your ego cannot prevent Him from shining on you, but it can prevent you from letting Him shine through you.
@@ -393,3 +401,43 @@ Hear, then, the one answer of the Holy Spirit to all the questions the ego raise
 ## the center of a thought system
 
 **What you must recognize is that when you do not share a thought system, you are weakening it. Those who believe in it therefore perceive this as an attack on them. This is because everyone identifies himself with his thought system, and every thought system centers on what you believe you are.** If the center of the thought system is true, only truth extends from it. But if a lie is at its center, only deception proceeds from it.
+
+## ritual as a way to forget oneself, as a way to improve one's attention
+
+Those who devote themselves to rituals must ignore themselves. Rituals produce a distance from the self, a self-transcendence. They depsychologize and de-internalize those enacting them.
+
+In the face of increasing rates of attention deficit disorder, the introduction of ‘ritual studies’ as a school subject has recently been advocated as a means of reviving the exercise of ritual repetition as a cultural technique. Repetition stabilizes and deepens attention.
+
+## digital communication as a way to reinforce one's self centeredness
+
+Digital communication channels are filled with echo chambers in which the voices we hear are mainly our own. Likes, friends and followers do not provide us with resonance; they only strengthen the echoes of the self.
+
+## an obsession with one's self makes society more and more unconnected
+
+Within the cult of authenticity, the production of self becomes a permanent activity. Authenticity thus atomizes society.
+
+## being polite as a way to destroy boundaries
+
+One hearty laugh together will bring enemies into a closer communion of heart than hours spent on both sides in inward wrestling with the mental demon of uncharitable feeling. To wrestle with a bad feeling only pins our attention on it, and keeps it still fastened in the mind; whereas if we act as if from some better feeling, the old bad feeling soon folds its tent like an Arab and silently steals away.
+
+A ritual of politeness is not an expression of subjective feeling; it is an objective act. It resembles a magical invocation that produces a positive mental state.
+
+## societies loss of ritual destroying the art of being -- all forms of art for that matter
+
+Today, the arts are increasingly rendered profane and disenchanted. Magic and enchantment – the true sources of art – disappear from culture, to be replaced by discourse. The enchanting exterior is replaced with the true interior, the magic signifier with the profane signified. The place of compelling, captivating forms is taken by discursive content, Magic gives way to transparency. The imperative of transparency fosters an animosity to form. Art becomes transparent with regard to its meaning. It no longer seduces. The magic veil is cast off. The forms do not themselves talk. The language of forms, of signifiers, is characterised by compression, complexity, equivocation, exaggeration, a high degree of ambiguity that even reaches the level of contradiction. These suggest meaningfulness without immediately being reducible to meaning. All these now disappear, and instead we are confronted with simplified claims and messages that are artificially imposed on the work of art.
+
+## modern major festivals (concerts, etc.) as an extension of the self
+
+They are an intense form of life. In the festival, life relates to itself instead of subordinating itself to external purposes.
+
+Today’s popular festivals have become mass events, and masses are not communities.
+
+## what is a haiku
+
+In the haiku, the limitation of language is the object of a concern which is inconceivable to us, for it is not a question of being concise (i.e., shortening the signifier without diminishing the density of the signified) but on the contrary of acting on the very root of meaning, so that this meaning will not melt, run, internalize, become implicit, disconnect, divagate … the haiku is not a rich thought reduced to a brief form, but a brief event which immediately finds its proper form.
+
+## modern warfare as a disconnecting force btw the warring parties
+
+Superiority in the topological sense, that is, in the sense of being above the enemy, generates a different mental attitude towards the enemy. The asymmetry in the means of destruction at each party’s disposal leads the superior one to adopt an altogether different estimation of the enemy. The enemy is degraded into the criminal: ‘The superior force considers its superiority in weaponry to be proof of its iusta causa and declares the enemy to be a criminal, because it is no longer possible to realize the concept of iustus hostis.’
+
+With drone warfare, we reach the pinnacle of asymmetry. The degradation and transformation of the opponent into a criminal is the precondition of targeted killing, which resembles a kind of policing. Drone warfare completely dispenses with the reciprocity, the reciprocal relationship, that constitutes war as ritual combat. The attacker is wholly invisible. A screen is not an opponent.
